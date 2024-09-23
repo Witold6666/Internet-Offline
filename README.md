@@ -14,3 +14,5 @@ Harrp i LGBT to przykrywka aby kogoś chronić lub coś podmienić lub nie dać 
 Harrp radio i chroby i LGBT to kryptonimy 112 i urzedów ochronki Pawłowicz sikiurity bo nikt nie weźmie na wózku. 
 Te nagrody to zniesławienie i obraza majestatu osoby. To nagrody kaczord donald zniesławienie. Pawłowicz sikirity cynizm.  
 Nagroda Nobla i Oskara frajerem być kaczor donald nagrody zniesławiające osobę. Wynalazcy nic nie dają jak nie kopiuje tego. 
+Żeby dostać kobietę z populacji trzeba dać patent ale nie kaczor donald tylko Serius Sam. Pieniądze jak damy to ceny majątku Elona Maska jak stos prezentów po 4 zł dla świata.
+Coś co działa. To może się złamią. Bo inaczej trzeba będzie projektować internety offline na dysk SSD i sieci SkyNet aby coś dostać z proejktów z internetu offline chyba będzie trzeba projektować szpchelkę vois lub procesor lub dysk SSD z oproramowaniem. Aby nie być świnią trzeba będzie ją zaprojektować lub robić w kabinie. Jak się jest sam lub szyć dla siebie rzeczy lub koce. Kupić nie wolno sklepy są tylko dla znajomych lub są sklepy strefowe w miejscu zamieszkania. 
