@@ -20,3 +20,4 @@ Ten Internet offline co daje jest z gotowych eleemntów ale one są troche progr
 Ja bym chciał kobietę ze świata. Może coś zrobię. 
 Internet offline to internet gdzie można dostać wszystko jak z drukarki kwantowej i pracowni projekktanckiej z druku kwantowego jak ze sklepu. 
 Żeby pokonać prędkość światła potrzebne są cewki elektromagnetyczne do silnika jonowego tak też buduje się miecze świetlne lasery laserowe ostrze lub hiper napęd. Alber Einstein to był cwel od kaczor donald. Komputerów by nie było lub komputerów kwntowych był to gość Cava men z jaskini. 
+Urzędy patentowe to kaczor donald. 
