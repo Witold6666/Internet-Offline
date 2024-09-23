@@ -13,3 +13,4 @@ Oni tyle dają kasy i nie chcą dać kobiety bo kogoś nie lubią oni tylko rozu
 Harrp i LGBT to przykrywka aby kogoś chronić lub coś podmienić lub nie dać to kryptonimy urzedów i rodzin co mają kogoś gdzieś tak samo autyzm i wózek. Bo nikt nie chce chorego. Bo jest pan co ma pod sufitem nie równo jak ci do systemu to moja córunia. 
 Harrp radio i chroby i LGBT to kryptonimy 112 i urzedów ochronki Pawłowicz sikiurity bo nikt nie weźmie na wózku. 
 Te nagrody to zniesławienie i obraza majestatu osoby. To nagrody kaczord donald zniesławienie. Pawłowicz sikirity cynizm.  
+Nagroda Nobla i Oskara frajerem być kaczor donald nagrody zniesławiające osobę. Wynalazcy nic nie dają jak nie kopiuje tego. 
