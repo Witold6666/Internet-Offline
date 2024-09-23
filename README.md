@@ -12,3 +12,4 @@ Przez to prawo tych jeleni grupy kali i te sądy Judi, Wesołowska i Kubuś chod
 Oni tyle dają kasy i nie chcą dać kobiety bo kogoś nie lubią oni tylko rozumieją żarty kaczor donald cynizm z cyny lub post wysiłek za karę lub staż bycia cwelem przez 30 lat po kredycie lotto aby coś mieć. 
 Harrp i LGBT to przykrywka aby kogoś chronić lub coś podmienić lub nie dać to kryptonimy urzedów i rodzin co mają kogoś gdzieś tak samo autyzm i wózek. Bo nikt nie chce chorego. Bo jest pan co ma pod sufitem nie równo jak ci do systemu to moja córunia. 
 Harrp radio i chroby i LGBT to kryptonimy 112 i urzedów ochronki Pawłowicz sikiurity bo nikt nie weźmie na wózku. 
+Te nagrody to zniesławienie i obraza majestatu osoby. To nagrody kaczord donald zniesławienie. Pawłowicz sikirity cynizm.  
