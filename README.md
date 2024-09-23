@@ -23,3 +23,4 @@ Internet offline to internet gdzie można dostać wszystko jak z drukarki kwanto
 Urzędy patentowe to kaczor donald. 
 Do Laptop Creator, Precision Laptop, Dewyw, Mac, Lenovo, Rog. 
 Internet offline robi jak z obrazu przedmiot i drukuje radiem drukarką kwantową. 
+Oprogramowanie do projektowania systemów internetów Offline. 
