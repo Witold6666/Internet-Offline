@@ -24,3 +24,4 @@ Urzędy patentowe to kaczor donald.
 Do Laptop Creator, Precision Laptop, Dewyw, Mac, Lenovo, Rog. 
 Internet offline robi jak z obrazu przedmiot i drukuje radiem drukarką kwantową. 
 Oprogramowanie do projektowania systemów internetów Offline. 
+Tym oprogramowaniem można wykuć wszystko nawet mózg czy statek kosmiczny i inne statki kosmiczne z napędem worp czy rzeczy lub koce itp. Samotność na świecie jest wynikiem nowych możliwości, braku wyboru osób, i usług ochrony mienia i rzeczy czy osób i słowa nie. Kobiety też będzie trzeba kuć. 
