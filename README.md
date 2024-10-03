@@ -37,3 +37,4 @@ Wydaje mi się że te Voisy trzeba robić w Chinach czasami Włochy.
 Kiedyś na 100% jedną z firm reklamowała Eliza Cassan i Kortana z Halo 5 na bilbordzie reklamowały Vois i schowki Vois i Vois do produkcji rzeczy i kobiet. Zdanie jakie pamietam wypróbuj naszej nowej kosmicznej technologi jak od agentów z gwiezdnych wojen gwarantujemy zadowolenie z życia na innym poziomie i lepszych doświadczeń z życia. Cena jest na stronie. Podobno ceny były z kosmosu i umowy komronicze. W tedy żyło sie jak Cyberpunk daleko w przyszłości. 
 Zróbcie sobie drukarki kantowe do drukowania tego złomu. Oreng podobno o złom się kłóci.  Drukarki kwantowe na USB. 
 Jak nie będą mnie słuchać zidy i niemcy nie będą mieć nic. Z mocy od demnie nic nie dostaną. Niech sobie wydrukują. Bo zid chce dużo. 
+Ci co kradną auta i szmelc są ze stadionów oni kradną na złom i do śmietnika są to pracownicy złomowisk. To sa Zidy. Drukarki ktoś niech im da. To nic nie wyniosą z domu. 
