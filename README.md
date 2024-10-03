@@ -38,4 +38,4 @@ Kiedyś na 100% jedną z firm reklamowała Eliza Cassan i Kortana z Halo 5 na bi
 Zróbcie sobie drukarki kantowe do drukowania tego złomu. Oreng podobno o złom się kłóci.  Drukarki kwantowe na USB. 
 Jak nie będą mnie słuchać zidy i niemcy nie będą mieć nic. Z mocy od demnie nic nie dostaną. Niech sobie wydrukują. Bo zid chce dużo. 
 Ci co kradną auta i szmelc są ze stadionów oni kradną na złom i do śmietnika są to pracownicy złomowisk. To sa Zidy. Drukarki ktoś niech im da. To nic nie wyniosą z domu. 
-Jak te Wynalazki zrewolucjinizują świat to mogę na serio bez jaj prosić od Teslę i Kobietę może być włoszka ze sklepu, Eleiza Cassan, TX Kristiana, Kortana Halo 5 orginalna 1 żona z populacji nie klon. Może nie będzie już afer i wszyscy będą znów mieć imprezy na zdrowo. Może świat pójdzie do przodu. 
+Jak te Wynalazki zrewolucjinizują świat to mogę na serio bez jaj prosić od Teslę i Kobietę może być włoszka ze sklepu, Eleiza Cassan, TX Kristiana, Kortana Halo 5 orginalna 1 żona z populacji nie klon w koc kocu i sweterze i polarze. Może nie będzie już afer i wszyscy będą znów mieć imprezy na zdrowo. Może świat pójdzie do przodu. 
