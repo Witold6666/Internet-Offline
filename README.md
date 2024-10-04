@@ -43,3 +43,4 @@ Jak ktoś chce mi podarować żone z opisu i imion to ma nie być taka co chce b
 Co do Algorytmu Internet Offline może być uniwersalnym algorytmem do inżynieri offline może być inżynierem i może coś wymyśleć i wydrukować. Może być też kobietą do towarzystwa ciało można wydrukować biologiczne z algorytmu.  
 Ten algorytm może być żoną tylko trzeba wygenerować ciało DNA dla tej żony. 
 To oni są chorzy na punkcie tych sklepów. 
+Ja to rysuje od małego. 
