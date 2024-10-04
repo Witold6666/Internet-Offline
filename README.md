@@ -44,3 +44,4 @@ Co do Algorytmu Internet Offline może być uniwersalnym algorytmem do inżynier
 Ten algorytm może być żoną tylko trzeba wygenerować ciało DNA dla tej żony. 
 To oni są chorzy na punkcie tych sklepów. 
 Ja to rysuje od małego. 
+Sztuka. 
