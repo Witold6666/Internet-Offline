@@ -57,3 +57,4 @@ Ci na górze w inych wszechświatach i równoległych wszechsiatach byli niewoln
 Jedynym ratunkiem dla planety są wyliczenia komputerów kwantowych w sprawie tych moich wynalazków aby był znów przez 1 000 000 lat sylwester. To jest ważne nie to co związane z żartami. 
 Na te żarty Kaczor Donald potrzebne są jak na frajerwerki na sylwestra drukarki kwantowe aby elektrycznie drukować surowce do tych pism i rzeczy i gazet bez surowcy nie ma nic. 
 Co do harrp to są to żarty kaczor donald te wypadki na drodze i pogrzeby to żarty kaczor donald komuś się nudzi i ma instykt zwierzęcia proste zwierzęta. 
+Ci co się śmieją z tych żartów i tragedi tych cyników i satyryków to osoby gwiazdy z Kaliforni Grupa Kali linux miała ubaw z Firmy Int i przekerntu na firmę Int. Podobno Grupa kali pobiła 6 kobiet w kocach były święte panie doktor.  
