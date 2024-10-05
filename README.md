@@ -56,4 +56,4 @@ Ci na górze w innych wszechśiatach i równoiległych wszechsiatach żyją cykl
 Ci na górze w inych wszechświatach i równoległych wszechsiatach byli niewolnikami post wysiłku i Hiper Post Wysiłku uprawiali pole z rozlinami na olej rzepakowy na paliwa. 
 Jedynym ratunkiem dla planety są wyliczenia komputerów kwantowych w sprawie tych moich wynalazków aby był znów przez 1 000 000 lat sylwester. To jest ważne nie to co związane z żartami. 
 Na te żarty Kaczor Donald potrzebne są jak na frajerwerki na sylwestra drukarki kwantowe aby elektrycznie drukować surowce do tych pism i rzeczy i gazet bez surowcy nie ma nic. 
-Co do harrp to są to żarty kaczor donald te wypadki na drodze i pogrzeby to żarty kaczor donald komuś się nudzi i ma instykt zwierzęcia. 
+Co do harrp to są to żarty kaczor donald te wypadki na drodze i pogrzeby to żarty kaczor donald komuś się nudzi i ma instykt zwierzęcia proste zwierzęta. 
