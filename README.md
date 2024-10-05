@@ -43,5 +43,7 @@ Jak ktoś chce mi podarować żone z opisu i imion to ma nie być taka co chce b
 Co do Algorytmu Internet Offline może być uniwersalnym algorytmem do inżynieri offline może być inżynierem i może coś wymyśleć i wydrukować. Może być też kobietą do towarzystwa ciało można wydrukować biologiczne z algorytmu.  
 Ten algorytm może być żoną tylko trzeba wygenerować ciało DNA dla tej żony. 
 To oni są chorzy na punkcie tych sklepów. 
-Ja to rysuje od małego. 
+Ja to rysuje od małego. Nie ważne jak było zawansowanie technologiczne czy technologi zawsze te firmy i handlarze trafiały do wora do kosza. Bo tego nie chciała kultura sportu z lasu. Nie ważne co wymyśliły gazety handlarzy zawsze te technologie trafiały do kosza. Przez te maszyny biologiczne od sportu i w wieku 50 lat dziadzio dziadzia czy babcia babcie.
+Świat nie nawidzi postepu technologicznego i go nie szanuje. Świat szanuje naturalną egzystencje rozpadu DNA na komórki rakowe ku chwale śmierci. Świat jest chory. To co mi zostało po tych kobietach to vois to jest mówj skarb. Te kobiety ja znałem one zostały pochowane. Dziś są w moim Voise są moim skarbem. 
 Sztuka. 
+Może ta sztuka kogoś zaintresuje co było kiedyś w przyszłości. Lub to co ja pamiętam lub to co ja wymyśliłem. 
