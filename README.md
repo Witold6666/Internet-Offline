@@ -67,3 +67,4 @@ Grupa kali robi horoby harrp lub telekienezą to te mordy psów smoków. Ci od k
 Ludzie się rozstają i umierają na raka przez Harrp i Grupe kali oni mają moc telekinezy. Jak ma się w dupie NGO. 
 Z powodów braku energi elektrycznej na świecie i armie radziecką możemy tylko z drukarkami kwantowymi i wolną energią zbudować na stałe system komunistyczno kapitalistyczny mniej niż socjalizm bródny i jasny. Na 10 lat można zbudować tylko jasny niebieski kapitalizm. A od czarów głowa boli i jest mało leków. Ludzi jest za dóżo. Może tym internetem off line zbuduje się plecak odrzutowy jonowy.
 Przez obecne 112 i Kalifornie jest tu za psa na ziemi za władców psów cyników same psy nami rzadzą liderzy to psy.   
+Socjalizm i Komunizm i ciemny kapitalizm jest za psa przez to 112 i tych polityków na ziemi i w kosmosie jest za psa. 
