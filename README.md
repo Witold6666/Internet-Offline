@@ -75,3 +75,4 @@ Oni i te afery co szkodzą ludzią i zamieniają w zwierzeta ludzi to są psy. R
 112 i Harrp i starość kaczor donald to za psa. Rządy za psa. Bez Harrp i osób psi można być pięknym i młodym wiecznie. Te za psa rządy to zidy żydzi. 
 112 obecne to przestępcy. 
 Miałem sen o Kitty Pryd powiedziała mi że muszę coś zrobić aby zmienić świat może w części projektami wymazać zło. Im nauka przychodzi ciężko. Powidziała mi że mam rozum. Chce coś zrobić nie uczyłem się bez sensu. 
+Te afery z chorobami i niepełnosprawnością i zamianą w zwierzęta i na ulice. To Grupa kali harrp telekineza oni to świnie są. Chcą coś dostać za darmo od ludzi aby wam coś sprzedać jako NGO za darmo. Kłucą się o nowości i własności patentowe. Kupili Oreng są własicieleami Oreng są z Drako Drakoni. To bogaci hakerzy nie ludzie gado ludzie. 
