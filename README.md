@@ -103,3 +103,4 @@ Ja chce aby każdy miał sylwestra. I skoniczyły się te wojny.
 Te afery zaczeły się u cuzamenów cudzołożenia i cuzamenienia i innych alimentów czy porzyczek żon. Zarobili na rolnictwie to zrobili olimpiady i lotto a innym kazali innaczej zarabiać pieniądze. 
 Wojny i afery były o zakupy. 
 Wydaje mi się że 5 zł lotto mój system da. 
+Tym procesorem można tłuc wszystko szybko jak Hurtownicy i Hurtownie Hiper Hurtownie. 
