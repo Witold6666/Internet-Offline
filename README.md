@@ -78,3 +78,4 @@ Miałem sen o Kitty Pryd powiedziała mi że muszę coś zrobić aby zmienić ś
 Te afery z chorobami i niepełnosprawnością i zamianą w zwierzęta i na ulice. To Grupa kali harrp telekineza oni to świnie są. Chcą coś dostać za darmo od ludzi aby wam coś sprzedać jako NGO za darmo. Kłucą się o nowości i własności patentowe. Kupili Oreng są własicieleami Oreng są z Drako Drakoni. To bogaci hakerzy nie ludzie gado ludzie. 
 NGO Jurka Magdzińskiego sprzedaje używane rzeczy i wpycha na siłe urzywane rzeczy. On podobno jest tajny. Jurek Magdziński jest z parti socjalistów. Nowe dla partyjnych. Obieg zamkninty parti. 
 To co przygotowałem to może iść na sklep lub jakiś bank NGO pomocy ubogim za darmo. 
+Polityka i afery w życiu to cham 112. Dzisiejsze 112 to cham władcy za psa reżim psa i karanie tęczą LGBT czy chorobami czy zamiany w zwierze.     
