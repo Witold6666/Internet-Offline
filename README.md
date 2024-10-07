@@ -100,3 +100,4 @@ Kitty Pryd po Bajkach i filmach X men poszła do pracy. A część jest vipami b
 Komputery mogą szyć i kuć zamuwienia na rzeczy nawet laptopy nowe obecne lub z roku 2050. 
 Probelem to Bios i przeniesienie tego narzędzia narzędzi do systemu starego i nowego ale już co jest za darmo lub jest tani może być nowy i drogi ale będzie komercyjny. 
 Ja chce aby każdy miał sylwestra. I skoniczyły się te wojny. 
+Te afery zaczeły się u cuzamenów cudzołożenia i cuzamenienia i innych alimentów czy porzyczek żon. Zarobili na rolnictwie to zrobili olimpiady i lotto a innym kazali innaczej zarabiać pieniądze. 
