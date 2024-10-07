@@ -94,3 +94,4 @@ Ten Pies to 112. Normy ISO 50001 i 45001 BHP są rygorystyczne i najwysze.
 Kto dosatanie Nobla idzie do więzienia. Lub oskara też. Po oskarze i Noblu dostaje się orzeczenie o niespełsnosparawności. 
 Śmieci nikt nie chce kupować. 
 Śmieci dematerilisuje się radiem lub spala w spalarni ale tego ciepła się nie przetwarza na ogrzewanie domu czy budynków. 112 to są śmieci. 
+Ja proponuje wgrać te prorgramy do wszystkich systemów operacyjnych jakie tylko są. Nawet do tych mniej znanych. Może to by nas uzalerzniło od surowców. Linux, Kali Linux, Ubuntu, Solaris, Systemy na GitHub, Windows, BSD, Mac, Google chrome, Back Track, Slax Net i inne systemy. 
