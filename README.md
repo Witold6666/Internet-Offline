@@ -85,3 +85,4 @@ Sklepy oznaczają oznaczenia punkty raka za duże nie post małe zakupy. U mnie 
 Do sklepów trzeba kuć i szyć algorytmami. 
 Te pogrzemy afery i choroby to kaczor donald i niepełnosprawni zidy 112.
 Kozerny runek żydów zidów to produkcja śmieci to są śmieci. 
+Robie światu i znajomym zakupy z AI.  
