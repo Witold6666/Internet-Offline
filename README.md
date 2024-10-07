@@ -89,3 +89,4 @@ Robie światu i znajomym zakupy z AI.
 112 to te afery pogrzebowe i zdrowotne harrp. Afery rynek z foli u foljarzy. Foljarstwem karze się zajmować ludziom 112. 
 Ci bezdomni od foli i tych afer to 112. 
 Hishe podobno z foli i chemi robią jedzenie. 
+Amazon podobno grzebie w koszu. 
