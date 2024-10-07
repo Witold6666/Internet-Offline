@@ -90,3 +90,4 @@ Robie światu i znajomym zakupy z AI.
 Ci bezdomni od foli i tych afer to 112. 
 Hishe podobno z foli i chemi robią jedzenie. 
 Amazon podobno grzebie w koszu. 
+Ten Pies to 112. Normy ISO 50001 i 45001 BHP są rygorystyczne i najwysze. 
