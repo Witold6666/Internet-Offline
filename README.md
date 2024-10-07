@@ -79,3 +79,4 @@ Te afery z chorobami i niepełnosprawnością i zamianą w zwierzęta i na ulice
 NGO Jurka Magdzińskiego sprzedaje używane rzeczy i wpycha na siłe urzywane rzeczy. On podobno jest tajny. Jurek Magdziński jest z parti socjalistów. Nowe dla partyjnych. Obieg zamkninty parti. 
 To co przygotowałem to może iść na sklep lub jakiś bank NGO pomocy ubogim za darmo. 
 Polityka i afery w życiu to cham 112. Dzisiejsze 112 to cham władcy za psa reżim psa i karanie tęczą LGBT czy chorobami czy zamiany w zwierze.     
+Sklepy kłucą się o nowości. 
