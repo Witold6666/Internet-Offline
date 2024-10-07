@@ -81,3 +81,4 @@ To co przygotowałem to może iść na sklep lub jakiś bank NGO pomocy ubogim z
 Polityka i afery w życiu to cham 112. Dzisiejsze 112 to cham władcy za psa reżim psa i karanie tęczą LGBT czy chorobami czy zamiany w zwierze.     
 Sklepy kłucą się o nowości. 
 Sklepy oznaczają oznaczenia punkty raka za duże nie post małe zakupy. U mnie można dużo kupić ale nie wpuszczam LGBT i 112 do sklepu. 
+112 i Harrp to te afery ze zmianą kogoś w zwierze czy kosmitę ten cynizm to 112 może w Harrp jest jakiś Xmen lub mag indygo czy smok lub jakiś pies telekinetyk cynik. 
