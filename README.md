@@ -93,3 +93,4 @@ Amazon podobno grzebie w koszu.
 Ten Pies to 112. Normy ISO 50001 i 45001 BHP są rygorystyczne i najwysze. 
 Kto dosatanie Nobla idzie do więzienia. Lub oskara też. Po oskarze i Noblu dostaje się orzeczenie o niespełsnosparawności. 
 Śmieci nikt nie chce kupować. 
+Śmieci dematerilisuje się radiem lub spala w spalarni ale tego ciepła się nie przetwarza na ogrzewanie domu czy budynków. 112 to są śmieci. 
