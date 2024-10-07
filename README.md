@@ -99,3 +99,4 @@ Cały ten szow zaczoł się od sportu i gier do lat 80 gier soldier of fortune. 
 Kitty Pryd po Bajkach i filmach X men poszła do pracy. A część jest vipami bo ma kasę z lotto i jest bogata stale lub ma firmy jak Amazon bo kupił firmę. Inni są na etacie lub zostali hakerami i programistami i elektronikami. Wydaje mi się że przez socjalizm co narzuca policja po tem komunizm wszystko się wypali i nikomu już się nie będzie chciało robić nic. 
 Komputery mogą szyć i kuć zamuwienia na rzeczy nawet laptopy nowe obecne lub z roku 2050. 
 Probelem to Bios i przeniesienie tego narzędzia narzędzi do systemu starego i nowego ale już co jest za darmo lub jest tani może być nowy i drogi ale będzie komercyjny. 
+Ja chce aby każdy miał sylwestra. I skoniczyły się te wojny. 
