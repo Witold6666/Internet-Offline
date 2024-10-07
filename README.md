@@ -83,3 +83,4 @@ Sklepy kłucą się o nowości.
 Sklepy oznaczają oznaczenia punkty raka za duże nie post małe zakupy. U mnie można dużo kupić ale nie wpuszczam LGBT i 112 do sklepu. 
 112 i Harrp to te afery ze zmianą kogoś w zwierze czy kosmitę ten cynizm to 112 może w Harrp jest jakiś Xmen lub mag indygo czy smok lub jakiś pies telekinetyk cynik. 
 Do sklepów trzeba kuć i szyć algorytmami. 
+Te pogrzemy afery i choroby to kaczor donald i niepełnosprawni zidy 112.
