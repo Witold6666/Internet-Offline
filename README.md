@@ -122,3 +122,4 @@ Zid to złe wybory i złe historie dla innych i świata są egoistami wolą mie�
 Elen Rypli i Amanda Rypli z Sombrero galaktyki Sombrero była święta w koce i koc z kocem dawała informacje i patenty do sieci i projektowała. Ta Elen i Amanda Rypli z tej ziemi to Harashko tajemnica bo jak chcesz znać prawdę o tajemnicy tych patentów to musiała bym zrobić z ciebie całun Turyński. Ci z tej ziemi naukowcy to złodzieje z 112 żebracy czerwoni. 
 Widać to po tym w czym chodzą ludzie dobrzy a w czym źli i co mają w domu hangarze na statek czy garażu. 
 Dobrzy ludzie zawsze byli bezdomni. Ma się to zmienić. Chce aby źli ludzie byli bezdomni tacy jak Grupa Kali Linux Oliwia Przybysz chodzi o tych cenzorów od czerwonych i legi sparty.  
+U czerwonych byli tylko bogaci ludzie z parti. Cywilie byli bezdomni. 
