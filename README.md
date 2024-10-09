@@ -110,3 +110,4 @@ Kupić nie wolno podobno dzieci i DNA urabiają radiem i dają np.: Ruri Ochame.
 Internet z modemu chromcast też jest z google. Ale dla Krakowa Google to Binokle. 
 Chromcast google to zakupy z drukarki kwantowej na radio Bluethooth i Wi-Fi. 
 Tych co nie wiedzą Chromcast google ma statut prawny za brak robienia kolejnych zakupów w google chromcast przychodzi komornik i na ulice jak pójdzie się do konkurnecji po google.  
+Za Internet w Oreng płaci się 1000 zł co miesiąc z TV. Ci z TV są drodzy i są chamscy. W Google płaci się raz za internet i zasoby na dysku 300 zł. Telekomunikacja jest lewa. 
