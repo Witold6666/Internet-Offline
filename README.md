@@ -124,3 +124,4 @@ Widać to po tym w czym chodzą ludzie dobrzy a w czym źli i co mają w domu ha
 Dobrzy ludzie zawsze byli bezdomni. Ma się to zmienić. Chce aby źli ludzie byli bezdomni tacy jak Grupa Kali Linux Oliwia Przybysz chodzi o tych cenzorów od czerwonych i legi sparty.  
 U czerwonych byli tylko bogaci ludzie z parti. Cywilie byli bezdomni. 
 Trzeba się pozbyć tych żuli z parti partyjnych kloszardów od cenzury i zatajania prawdy. 
+Pewne lale działay jako agentki w cenzurze na adresie 127.0.0.1. I cenzurowały tajne dane dla nich tajne a miały być w intrenecie na serwerze. Te lale trzeba też wykuć nowe. Stare złe do utylizacji na zastrzyk śmierci.  
