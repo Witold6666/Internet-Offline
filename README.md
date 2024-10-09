@@ -102,5 +102,6 @@ Probelem to Bios i przeniesienie tego narzędzia narzędzi do systemu starego i 
 Ja chce aby każdy miał sylwestra. I skoniczyły się te wojny. 
 Te afery zaczeły się u cuzamenów cudzołożenia i cuzamenienia i innych alimentów czy porzyczek żon. Zarobili na rolnictwie to zrobili olimpiady i lotto a innym kazali innaczej zarabiać pieniądze. 
 Wojny i afery były o zakupy. 
+Można to wszystko dostać z drukarką kwantową Odtwarzacz Chromcast 4.0 4K 24K cały internet i drukować i sprzedawać. Odwarzacz można kupić na Allegro lub Amazon lub internecie czy sklepach blaszanych ale one są rzadkie jak papierosy drogie na stacji bęzynowej. W Internecie jest. 
 Wydaje mi się że 5 zł lotto mój system da. 
 Tym procesorem można tłuc wszystko szybko jak Hurtownicy i Hurtownie Hiper Hurtownie. 
