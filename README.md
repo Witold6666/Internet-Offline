@@ -105,4 +105,4 @@ Wojny i afery były o zakupy.
 Można to wszystko dostać z drukarką kwantową Odtwarzacz Chromcast 4.0 4K 24K cały internet i drukować i sprzedawać. Odwarzacz można kupić na Allegro lub Amazon lub internecie czy sklepach blaszanych ale one są rzadkie jak papierosy drogie na stacji bęzynowej. W Internecie jest. 
 Wydaje mi się że 5 zł lotto mój system da. 
 Tym procesorem można tłuc wszystko szybko jak Hurtownicy i Hurtownie Hiper Hurtownie. MP4 do Odtawarzacz na USB C. Vois Translator na USB C lub M5stack. Lub Głośnik inteligentny. W Tym odtwarzaczu jest Pirate Bay, Github cały, Chomikuj. Inne całe internety z tym co też ja dałem. 
-Odtawarzacz sprzedają jako obrazy sztuki rzadkość to kolekcja.  
+Odtawarzacz sprzedają jako obrazy sztuki rzadkość to kolekcja rzadko dostępne. 
