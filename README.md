@@ -167,4 +167,4 @@ Ja nie chce aby były żony z góry wybierane z urzędu od czerwonych na żony. 
 Samsung Wach Pass jest nie udanym projektem zegarków żon z populacji ma wady genetyczne i choroby psychiczne jak cynizm satyra i kaczor donald autyzm. Porponuje projekt Awatar 2045 projektowanie świadomości partnera od podctaw bez wyboru ze sklepu sami zaprojektujemy DNA to co nam się podoba. 
 Żonę trzeba wymyślić i opracować od 0 nową inną niż populacja normalną kochającą nie na Nobla czy medal sportu gry. Żonę do kochania nie żonę do sklepu nie cccp czy PZPR czy z legi i sparty na nagrody kaczor donald.  
 Te wybory kobiet z urzędu są bezsensowne i brzydkie zabierają możliwość wyboru żony jakiej się chce oni to robią z urzędu. 
-Na tym można zakoniczyć. 
+Na tym można zakoniczyć. Oni są lewi. 
