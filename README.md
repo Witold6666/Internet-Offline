@@ -182,4 +182,4 @@ Czarowanie marnuje surowce rosji jedzenie dla czarodziejek. Ostanią żywność 
 Czarować nie wolno tylko dla siebie. Życie w jaksini po staremu jest wg mnie zakazane i utrzymywanie czarownicy co czaruje dla populacji rzeczy a nie dla siebie jest nie zgodne z prawem zasad i praw technicnzych i przmeysłowych bo czarownica jest uboga i często ląduje na ojonie w 112. 
 A wojny nic nie znaczą tylko zabijają nie rozwijają cywilizacji tylko je okradają. 
 Drukarki kwantowe mogą dać czas wolny i surowce ale tylko na wolną energi i shcmeaty generatorów co jeszcze nie istnieją tylko je potrafią porjektować super komputery. 
-Więcej nie muszę tłumaczyć z kądt wynika bieda i spekulacja że jest bieda. 
+Więcej nie muszę tłumaczyć z kądt wynika bieda i spekulacja że jest bieda. Przemyt to czarownice. Przmeysł to drukarki kwantowe mechatroniczne na wolną enerię. 
