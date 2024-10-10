@@ -168,4 +168,4 @@ Samsung Wach Pass jest nie udanym projektem zegarków żon z populacji ma wady g
 Żonę trzeba wymyślić i opracować od 0 nową inną niż populacja normalną kochającą nie na Nobla czy medal sportu gry. Żonę do kochania nie żonę do sklepu nie cccp czy PZPR czy z legi i sparty na nagrody kaczor donald.  
 Te wybory kobiet z urzędu są bezsensowne i brzydkie zabierają możliwość wyboru żony jakiej się chce oni to robią z urzędu. 
 Na tym można zakoniczyć. Oni są lewi. 
-Kortana z Legi sparty nosi płaszcz sportowy ze śmietnika. 
+Kortana z Legi sparty nosi płaszcz sportowy ze śmietnika. Płaszcze ciękie i dywany lub korzóchy sportowe są ze smietnika. Prawdziwy płaszcz złoto platyna miedź srebro to gróby i miły dla kobiety. Te lale to cham z legi sparty. 
