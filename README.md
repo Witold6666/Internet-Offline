@@ -157,3 +157,4 @@ Gwen Tennyson Grozi nobel bo otworzyła bude z jedzeniem i zakupami i grozi jej 
 Jurek Magdziński pies i buc i kaczor donald to biologicznie mordercy od nagrody nobla i oskara ze 112 i policją i wojskiem i watykanem razem z celnikami i wesołowską i Urszulą Magdzińską. Ekonomista głuchy to też te medale. Jak nauczymy się nic nie robić i cieszyć sie tym co opisałem oni znudzą się i nie będą o nas nic chcieć. A jak tak to podacie ich na Kolegium te elity od kaczor donald satyra i cynizm na nobla i oskara.  
 Covid 19 wymyślili Danton i Jonson Nobliści w laboratoriach Soldier of Fortune 2. 
 Oreng i telekomunikacja z noblami 112 cenzuruje treści w TV i intenecie z elektryki a nie cenzuruje oszustów finasowych jak Jurek Magdziński czy NGO i inne 112 odaj nerkę. 
+112 i Noble to mordercy z Biologi. 
