@@ -139,3 +139,4 @@ Przez nich są żałoby o tych co chcą energi elektrycznej przez to 112 z izrae
 Te ataki hakerskie są po to aby uświadomiść że ludziom nie potrzebny jest prąmd elektryczny oni to teroryści i ci ze 112 co śpiewają jak prąmdu nie będzie będę zawsze z tobą jak pies. 
 Izrael nie chce elektryczności. Ci agenci będą krzyczeć wolność od energi elektrycznej. 
 Co do grupy kali to oni to przekrenty ze skrzyń od rzemieśnika brak czasu na miłość tylko handel przy ogniu. Nie z automatu. Grupie kali zalerzy tylko na geszeft pewne osoby co znam miały być moje pracują na tą grupe i jakieś długi. Wyanajeli ich. Do tego one rodzą im dzieci. Dziś trzeba sobie radzić samemu. Przez urzędy nie ma miłości. 
+Oni są źli ten klub moranej biedoty. Przez takich jak oni nie można żyć jak Elon Mask w luksusie za czasów kiedy miał durzą gotówkę. Cała ta 112 wszystkich denerwuje. 
