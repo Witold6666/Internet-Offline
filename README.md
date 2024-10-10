@@ -142,3 +142,4 @@ Co do grupy kali to oni to przekrenty ze skrzyń od rzemieśnika brak czasu na m
 Oni są źli ten klub moranej biedoty. Przez takich jak oni nie można żyć jak Elon Mask w luksusie za czasów kiedy miał durzą gotówkę. Cała ta 112 wszystkich denerwuje. 
 Oni są ze SkyRim Rosji i Izraela i germani czy angli i starych USA. 
 Smok Wawelski był bogaty bo chciał być bogaty mieć gotówkę i bogactwo to go 112 jakiś szewfc go zabił. To była mądra osoba z rodu smoka. Reszta to dziady chcą tylko biedy i dużej rodziny. Ludzi tylko rodzą i robią wojny i kłutnie. 
+Ich historie życia wybielają i rysują bajki że z nimi będzie bajka. 
