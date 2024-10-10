@@ -158,3 +158,4 @@ Jurek Magdziński pies i buc i kaczor donald to biologicznie mordercy od nagrody
 Covid 19 wymyślili Danton i Jonson Nobliści w laboratoriach Soldier of Fortune 2. 
 Oreng i telekomunikacja z noblami 112 cenzuruje treści w TV i intenecie z elektryki a nie cenzuruje oszustów finasowych jak Jurek Magdziński czy NGO i inne 112 odaj nerkę. 
 112 i Noble to mordercy z Biologi. 
+Harcerze i gazety i żołnierze legi sparty kaczor donald cynizm i satyra wręczają te nagrody. Gzety z internetu nie dla nich to bzdedty i afery poniżenie kogoś.  
