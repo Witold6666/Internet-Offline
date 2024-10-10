@@ -143,3 +143,4 @@ Oni są źli ten klub moranej biedoty. Przez takich jak oni nie można żyć jak
 Oni są ze SkyRim Rosji i Izraela i germani czy angli i starych USA. 
 Smok Wawelski był bogaty bo chciał być bogaty mieć gotówkę i bogactwo to go 112 jakiś szewfc go zabił. To była mądra osoba z rodu smoka. Reszta to dziady chcą tylko biedy i dużej rodziny. Ludzi tylko rodzą i robią wojny i kłutnie. 
 Ich historie życia wybielają i rysują bajki że z nimi będzie bajka. 
+Przez te afery z czynem pracy i czasem na prace nie ma czasu na przytulanie się w domu pod kocem z kobietą. Tylko karzą ekonomiści pracować na etacie w sklepie czy na magazynie lub jako rzemieśnicy w fabrykach na zakupy i zasoby i zapasy światowe. Może lepiej już czas kupić chromcast google lub opracować takie urządzenie jak google z drukarkami kwantowymi i dać populacji odpocząć i dać jakiś generator na USB z nieskońcozną energią z generatora wolneje energi z post akumulatorem kwantowym. 
