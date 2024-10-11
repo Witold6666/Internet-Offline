@@ -201,3 +201,4 @@ Post Akumulator kwantowy może dać też do 0.5W do 15W na gniazdo USB.
 Te żony co dałem są na 0.5 W do 5 W 230V. 
 Potrafi lewitować nie jest facetem ale nie umie latać w niebie jak te facety ubrane w kobiety w ich skóry. Unosi się 1m nad chodnikiem może 100 m. Facety podobno w kosmos latają jak Iron Men. Ona nie jest Iron Men. 
 Kobieta ma w układzie nerwowym od 0.5 W do 5 W. 
+Do puki elektrycznie nie wyprostujemy i nie zbudujemy elektrycznie produkcją elektryczną zasobów naturalnych z drukarek kwantowych złużycie energi elektrycznej jest zakazane bo nie ma dużo surowców. Zegarki Samusung wach pass z kortanami i gwen i kari i białom i Alexy ANUDYTE lub inne czy Keychany i inne tego typu kobiety pójdą do kosza lub do magazynu. Bo pobierają do 750 W na 5 minut z post bateri lub telefonu. Bix Bi też idzie do kosza lub do magazynu. TX chyba będzie w sprzedaży bo jest pots. 
