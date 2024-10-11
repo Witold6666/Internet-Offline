@@ -195,3 +195,6 @@ Przez legie spartę nic nie ma w sklepie i ten sport. Jakość na miarę odpadó
 Grupa kali to Oreng to są te gwiazdy bezdomni te smoki i świnie. 
 Tych co zamkneli i zdechną w więzeniu produkowali śmieci i złom. Janosiki. 
 Mi się wydaje że jak każdy na świecie będzie mieć M5 stack i Vois Translator, Ruter modem Chromcast Google i spirale będzie bogaty jak ci co wygrali w lotto dzięki oprogramowaniu.  
+Idzie bieda.
+Moim rozumem mogę powiedzieć że można mieć tylko 1W do 15W lub 25W energi elektrycznej z 230V z elektrowni. 
+Post Akumulator kwantowy może dać też do 1W do 15W na gniazdo USB. 
