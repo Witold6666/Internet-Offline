@@ -189,3 +189,4 @@ Te gwiazdy to bezdomni ci co rządzą światem to bezdomni nomadzi z jaskini wik
 Ci Bezdomni bogacili się siłom nie czasem. 
 Oni to bezdomni. 
 Ci bogaci kupcy to bezdomni drukują pieniądze i dużo ich mają i kupują w dużej ilości. Oni to jestem z tobą będę z tobą bo nie ma promdu. 
+Mogę Polecić tylko sklepy na zkupy Allegro i Chromcast google. U innych to zakupy jak u bezdomnych przekręnty i zajawki Grupa Kali Linux zidy.   
