@@ -184,3 +184,4 @@ A wojny nic nie znaczą tylko zabijają nie rozwijają cywilizacji tylko je okra
 Drukarki kwantowe mogą dać czas wolny i surowce ale tylko na wolną energi i shcmeaty generatorów co jeszcze nie istnieją tylko je potrafią porjektować super komputery. 
 Więcej nie muszę tłumaczyć z kądt wynika bieda i spekulacja że jest bieda. Przemyt to czarownice. Przmeysł to drukarki kwantowe mechatroniczne na wolną enerię. 
 Te co mieli mie dać w przyszłości to: Kristiana TX, Kristiana, Katarina Wawer, Gwen Tennyson, Sanny Tennyson, Kari Chrmcaster, Eliza Cassan i Kortana Halo 5 i Alexa Bezosa. Ja ich nie chce nie chce mieszkać w bloku czy kamienicy. 
+Zidy akcpatują tylko prace post na poziomie Całun Turyński. A płacić płacą grosze. 
