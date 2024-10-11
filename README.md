@@ -188,3 +188,4 @@ Zidy akcpatują tylko prace post na poziomie Całun Turyński. A płacić płac�
 Te gwiazdy to bezdomni ci co rządzą światem to bezdomni nomadzi z jaskini wikingowie.  
 Ci Bezdomni bogacili się siłom nie czasem. 
 Oni to bezdomni. 
+Ci bogaci kupcy to bezdomni drukują pieniądze i dużo ich mają i kupują w dużej ilości. Oni to jestem z tobą będę z tobą bo nie ma promdu. 
