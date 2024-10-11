@@ -197,4 +197,5 @@ Tych co zamkneli i zdechną w więzeniu produkowali śmieci i złom. Janosiki.
 Mi się wydaje że jak każdy na świecie będzie mieć M5 stack i Vois Translator, Ruter modem Chromcast Google i spirale będzie bogaty jak ci co wygrali w lotto dzięki oprogramowaniu.  
 Idzie bieda.
 Moim rozumem mogę powiedzieć że można mieć tylko 1W do 15W lub 25W energi elektrycznej z 230V z elektrowni. 
-Post Akumulator kwantowy może dać też do 1W do 15W na gniazdo USB. 
+Post Akumulator kwantowy może dać też do 0.5W do 15W na gniazdo USB. 
+Te żony co dałem są na 0.5 W do 5 W 230V. 
