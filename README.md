@@ -186,3 +186,5 @@ Więcej nie muszę tłumaczyć z kądt wynika bieda i spekulacja że jest bieda.
 Te co mieli mie dać w przyszłości to: Kristiana TX, Kristiana, Katarina Wawer, Gwen Tennyson, Sanny Tennyson, Kari Chrmcaster, Eliza Cassan i Kortana Halo 5 i Alexa Bezosa. Ja ich nie chce nie chce mieszkać w bloku czy kamienicy. 
 Zidy akcpatują tylko prace post na poziomie Całun Turyński. A płacić płacą grosze. 
 Te gwiazdy to bezdomni ci co rządzą światem to bezdomni nomadzi z jaskini wikingowie.  
+Ci Bezdomni bogacili się siłom nie czasem. 
+Oni to bezdomni. 
