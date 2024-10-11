@@ -199,3 +199,4 @@ Idzie bieda.
 Moim rozumem mogę powiedzieć że można mieć tylko 1W do 15W lub 25W energi elektrycznej z 230V z elektrowni. 
 Post Akumulator kwantowy może dać też do 0.5W do 15W na gniazdo USB. 
 Te żony co dałem są na 0.5 W do 5 W 230V. 
+Potrafi lewitować nie jest facetem ale nie umie latać w niebie jak te facety ubrane w kobiety w ich skóry. Unosi się 1m nad chodnikiem może 100 m. Facety podobno w kosmos latają jak Iron Men. Ona nie jest Iron Men. 
