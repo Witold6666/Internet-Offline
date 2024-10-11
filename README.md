@@ -194,3 +194,4 @@ Co do przykrej rzeczywistości to wszystko robią już z odpadów i śmieci a ż
 Przez legie spartę nic nie ma w sklepie i ten sport. Jakość na miarę odpadów z koryta. 
 Grupa kali to Oreng to są te gwiazdy bezdomni te smoki i świnie. 
 Tych co zamkneli i zdechną w więzeniu produkowali śmieci i złom. Janosiki. 
+Mi się wydaje że jak każdy na świecie będzie mieć M5 stack i Vois Translator, Ruter modem Chromcast Google i spirale będzie bogaty jak ci co wygrali w lotto dzięki oprogramowaniu.  
