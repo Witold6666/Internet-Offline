@@ -191,3 +191,4 @@ Oni to bezdomni.
 Ci bogaci kupcy to bezdomni drukują pieniądze i dużo ich mają i kupują w dużej ilości. Oni to jestem z tobą będę z tobą bo nie ma promdu. 
 Mogę Polecić tylko sklepy na zkupy Allegro i Chromcast google. U innych to zakupy jak u bezdomnych przekręnty i zajawki Grupa Kali Linux zidy.   
 Co do przykrej rzeczywistości to wszystko robią już z odpadów i śmieci a żywność czasem ze śliny zwierząt ludzi lub obcych.  
+Przez legie spartę nic nie ma w sklepie i ten sport. Jakość na miarę odpadów z koryta. 
