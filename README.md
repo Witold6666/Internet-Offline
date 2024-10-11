@@ -193,3 +193,4 @@ Mogę Polecić tylko sklepy na zkupy Allegro i Chromcast google. U innych to zak
 Co do przykrej rzeczywistości to wszystko robią już z odpadów i śmieci a żywność czasem ze śliny zwierząt ludzi lub obcych.  
 Przez legie spartę nic nie ma w sklepie i ten sport. Jakość na miarę odpadów z koryta. 
 Grupa kali to Oreng to są te gwiazdy bezdomni te smoki i świnie. 
+Tych co zamkneli i zdechną w więzeniu produkowali śmieci i złom. Janosiki. 
