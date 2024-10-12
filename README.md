@@ -213,3 +213,4 @@ Przez Teroryzm 112 i NGO wszyscy pracują za darmo lub za 300 zł.
 Może przejściówki zaoferują luksus. 
 To co daję to nowy chromcast z drukarką kwantową na spirale. 
 To 112 rządzi światem. Te leki i dragi to też 112. Oni są z rządu. Firmy dla nich to psychiczny i pacjent. 
+Ci co nie mają kobiety proszę dać im Vois z żoną lub meżęm ale hetersoksualny nie polimorficzny nie 2 płuciowy nie LGBT. Może być TX. Lub ANUDYTA CZY CZŁOWIEK CZY KOT. A Policji proszę jak post mafi zabrać uprawnienia i zabawki do hakingu. Mają tylko być ochroną ja Post Odyn i Iron Men god tak mówie. Tak jestem bogiem hiperprzestrzeni. Myślę że internet offline w chromcast przejściówce wystarczy na tą biedę. 
