@@ -207,3 +207,4 @@ Zidy kupiły paliwa z Pingiwinami Pingwinami Linux Grupa kali. Legia sparta też
 112 trzeba zwolnić z pracy za te afery z brakiem wydania prawa jazdy i uprawnień im tylko dać posłanie pod mostem chodzi o żydów brody wąsy i podane do stołu i dach pod głową oni będą pod mostem. Może intrenet offline coś da. Co do post mafi im tylko dać posłanie pod most i zabrać im telefon i jamery.   
 Psychiatrzy z 112 są chorzy bo nie pozwalają lecieć w kosmos aby się wyprowadzić na własne miejsce do życia. Wg raportów 112 cianse bo własne i żona czy żony wystarczy tej osobie aby wybić z głowy te pomysły. Podobno jest nawet konstytucja co broni kaczora donalda żartów aby były żarty bo ci co nie mają żartów ci autystycy się wieszają. Bo Austronauci lecą w kosmos. Może internet offline coś da. 
 To co daje to są przejściówki Chromcast. 
+To co daje jest po to aby było jak by nie było znowu nic. 
