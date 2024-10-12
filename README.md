@@ -212,3 +212,4 @@ Przez Teroryzm 112 i NGO wszyscy pracują za darmo lub za 300 zł.
 112 i NGO ta policja i wojsko ich wolontariaty to post mafia i oafery pracy za 1200 zł. 
 Może przejściówki zaoferują luksus. 
 To co daję to nowy chromcast z drukarką kwantową na spirale. 
+To 112 rządzi światem. Te leki i dragi to też 112. Oni są z rządu. Firmy dla nich to psychiczny i pacjent. 
