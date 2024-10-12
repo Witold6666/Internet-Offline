@@ -208,3 +208,4 @@ Zidy kupiły paliwa z Pingiwinami Pingwinami Linux Grupa kali. Legia sparta też
 Psychiatrzy z 112 są chorzy bo nie pozwalają lecieć w kosmos aby się wyprowadzić na własne miejsce do życia. Wg raportów 112 cianse bo własne i żona czy żony wystarczy tej osobie aby wybić z głowy te pomysły. Podobno jest nawet konstytucja co broni kaczora donalda żartów aby były żarty bo ci co nie mają żartów ci autystycy się wieszają. Bo Austronauci lecą w kosmos. Może internet offline coś da. 
 To co daje to są przejściówki Chromcast. 
 To co daje jest po to aby było jak by nie było znowu nic. 
+Przez Teroryzm 112 i NGO wszyscy pracują za darmo lub za 300 zł. 
