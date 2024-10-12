@@ -210,3 +210,4 @@ To co daje to są przejściówki Chromcast.
 To co daje jest po to aby było jak by nie było znowu nic. 
 Przez Teroryzm 112 i NGO wszyscy pracują za darmo lub za 300 zł. 
 112 i NGO ta policja i wojsko ich wolontariaty to post mafia i oafery pracy za 1200 zł. 
+Może przejściówki zaoferują luksus. 
