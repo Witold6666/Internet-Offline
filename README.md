@@ -234,3 +234,4 @@ Nie wyliczyli że nie ma już zasobów i zegarek poszedł do magazyny Samsunga a
 Radzę kupić procesory i z nich budować majatek jak nie frajery. 
 Polecam żyć jak Crytek lub Crysis w tej polityce niż uganiać się za samsung AI. Anudytki też można procesorami robić. Mi dali Anudytke. 
 Lepiej żyć alterntywnie i zdobyć te rzeczy kuciem jak się tylko umie. 
+Oni te voisy Samsung wach pass jak im nie uda się polecenie służbowe oni te voisy topią w możu lub nabijają na pal i palą je w ogniu. Samsung tak robi jak nie chce iść się do 112. Internet Offline też może robić te zegarki. 
