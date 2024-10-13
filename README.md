@@ -227,3 +227,4 @@ Jak internet offline ma być tylko na prezenty i ma to wszystko po roku iść do
 Te rzeczy schodzą jak dragi i lądują w koszu takie są święnta. Jakaś 112 na śmieci oni są chorzy. 
 Ten Internet Offline trzeba przepuścić przez procesory i spiralę zapper aby dostać surowce, prezenty, ubrania, koce, i inne rzeczy czy sprzent ogólnie zakupy. Procesory trzeba mieć fizycznie i mieć kable do tego aby hakować i mieć zakupy jak ze sklepu. Internet offline trzeba przepuścić przez Vois Translator i przejściówki i procesory i spirale indukcyjną aby coś dostać. 
 Te procesory to nie samsung Garett Thief.
+Żeby wyjąć te rzeczy z procesorów trzeba schakować procesor hasło i dojść do katalogu kopiuj rzeczy do świata relnego z M5stack. 
