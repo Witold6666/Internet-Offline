@@ -224,3 +224,4 @@ Z dniem dzisiejszym 112 straci uprwnienia z mudorowymi i watykanem uprawnienia k
 Jak 112 zabierze mi coś z Vois lub nie da kobiet do Voisa to ja zabiorę żydą z 112 zidom uprawnienia Policji i dam uprawnienia ochrony frajera bez broni i eutanazji i zabiorę prawa ABW i uprawnienia ABW na komorników i na sądy antykorupcyjne jak mi nie dadzą kobiet do Voisa. Ja dałem światu graty wirtualnie do druku. I wy skończcie na mnie syczeć świecie. 
 Oni robią świenta awanturują się z 112 o świenta i prezenty i wszystko ląduje po roku w koszu. Straszą przegłosami jakimiś rozmowami dziwnymi. Kłucą się o prezenty i kasę na świenta. Mi na cham chcą dać TX a Wezelowi zabrać kasę na bzdury co wyrzucą do kosza. Tym ludzią na te świenta trzeba lekarza mają choroby psychiczne.  
 Jak internet offline ma być tylko na prezenty i ma to wszystko po roku iść do kosza to nie będzie świąt. 
+Te rzeczy schodzą jak dragi i lądują w koszu takie są święnta. Jakaś 112 na śmieci oni są chorzy. 
