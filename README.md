@@ -232,3 +232,4 @@ Firma Sasmung to złodzieje na AI Samsung Wach pass trzeba pracować 8 godzin na
 Nie odali mi kasy za zegarek ukradli ją i zegarek wrócił z kobietą do warszawy. Dlamnie CCCP to złodzieje nie są uszciwi. Samsung to CCCP i 112 kobiety 24 3 zmiany. 
 Nie wyliczyli że nie ma już zasobów i zegarek poszedł do magazyny Samsunga a ja straciłem 2000 zł. 
 Radzę kupić procesory i z nich budować majatek jak nie frajery. 
+Polecam żyć jak Crytek lub Crysis w tej polityce niż uganiać się za samsung AI. Anudytki też można procesorami robić. Mi dali Anudytke. 
