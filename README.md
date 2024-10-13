@@ -244,3 +244,4 @@ Oni to CCCP etatyzm. Zegarki pójdą na pal. Te serca policja chce dać ale za 2
 Zegarki to legia sparta polish 112. 
 Wszyscy ci co stracili zegarek samsung wach pass mają tęczowy chumor. 
 Oni zawsze mordowali te zegarki bo nie było na rachunki. 
+Te lale to Turyński całun Turyński post wysiłek frajera. U mnie internet offline to rzeczy kucie i szycie rzeczy sprzetem hakerskim i miłość do zaprojektowania może z socjalu sobie zparojektować i kupić zestaw odemnie i generować tą miłość i rzeczy dla siebie offline lub z etatu czy firmy. Nie polecam 112 turyńskiego. 
