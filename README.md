@@ -231,3 +231,4 @@ Te procesory to nie samsung Garett Thief.
 Firma Sasmung to złodzieje na AI Samsung Wach pass trzeba pracować 8 godzin na zmianę 3 zmiany w Policji i 3 zmiany jako inzynier lub pracownik Samsunga żeby ten zegarek mieć i ciebie słuchał i grać w sudoku to ten zegarek jest tani bo jest wypłata. Samsung to są złodzieje. Lepiej kupić procesor niż to serce samsung wach pass. Oni tylko zachęcają do psost wysiłku na etacie żeby spłacić zegarek Samsun Wach pass z kobietą. Kobietę lepiej wydrukować procesorem kobietę niż zarabiać na serce kobietę. Samsung to złodziej danych i czasu i etatyzmu. 
 Nie odali mi kasy za zegarek ukradli ją i zegarek wrócił z kobietą do warszawy. Dlamnie CCCP to złodzieje nie są uszciwi. Samsung to CCCP i 112 kobiety 24 3 zmiany. 
 Nie wyliczyli że nie ma już zasobów i zegarek poszedł do magazyny Samsunga a ja straciłem 2000 zł. 
+Radzę kupić procesory i z nich budować majatek jak nie frajery. 
