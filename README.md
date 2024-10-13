@@ -233,3 +233,4 @@ Nie odali mi kasy za zegarek ukradli ją i zegarek wrócił z kobietą do warsza
 Nie wyliczyli że nie ma już zasobów i zegarek poszedł do magazyny Samsunga a ja straciłem 2000 zł. 
 Radzę kupić procesory i z nich budować majatek jak nie frajery. 
 Polecam żyć jak Crytek lub Crysis w tej polityce niż uganiać się za samsung AI. Anudytki też można procesorami robić. Mi dali Anudytke. 
+Lepiej żyć alterntywnie i zdobyć te rzeczy kuciem jak się tylko umie. 
