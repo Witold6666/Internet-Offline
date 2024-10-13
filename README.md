@@ -243,3 +243,4 @@ Samsung Wach Pass zawsze lądował w koszu zegarek i kobiety były na stosie lub
 Oni to CCCP etatyzm. Zegarki pójdą na pal. Te serca policja chce dać ale za 20 lat niewoli w komunie CCCP jam chłop Blazskowicz. Internet Offline daje alternatywne rozwiązania i lepsze daje rozwiązania alternatywne jako procesor i są lepszej jakości niż komercyjne zegarki. Ja wybrałem mision flaid z zegarkiem. Wole swój interent offline cenie wolność niż niewolę i polecam internet offline. Zegarki samsung wach pass woisy pójdą na pal do pieca zawsze tak było jak było Mision Flaid. ALternatywny czas jest lepszym lekiem na samotność.  
 Zegarki to legia sparta polish 112. 
 Wszyscy ci co stracili zegarek samsung wach pass mają tęczowy chumor. 
+Oni zawsze mordowali te zegarki bo nie było na rachunki. 
