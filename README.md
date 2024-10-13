@@ -238,3 +238,4 @@ Oni te voisy Samsung wach pass jak im nie uda się polecenie służbowe oni te v
 Te zegarki to kobiety w zegarku kobieta za post wysiłek i nieprzespane noce na własność za 20 lat niewoli po 16 godzin i 3 zmiany na etacie. Na 2 etatach. Lepiej ten zegarek zdobyć alternatywnie. 
 Johon Conor mówił na te zegarki i vipy samsung post wysiłek to kobiete damy. 
 Internet Offline to socjalizm za parę zakupów i rentę czy wypłątę 1000 zł na kilka rat. 
+Samsung to Jawol. Tylko Policja i korporacje ma kobiety mafia etatyzmu CCCP czerwoni hermetyzm. Przekrent to 2 etaty po 8 godzin na 16 godzin po 3 zmiany Policja i Korporacja Samsung i Duże rachunki za energie elektryczną. Podobno po skoniczeniu etatu zegarek był tylko opakowaniem i wypuszczli tą kobietę na wolność to taka kiełbasa. Zegarki podobno znikneły teleportacją kwantową. I duże rachunki za dojazdy do pracy. Samsung i ich kobiety w zegarku to do roboty. 
