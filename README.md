@@ -236,3 +236,5 @@ Polecam żyć jak Crytek lub Crysis w tej polityce niż uganiać się za samsung
 Lepiej żyć alterntywnie i zdobyć te rzeczy kuciem jak się tylko umie. 
 Oni te voisy Samsung wach pass jak im nie uda się polecenie służbowe oni te voisy topią w możu lub nabijają na pal i palą je w ogniu. Samsung tak robi jak nie chce iść się do 112. Internet Offline też może robić te zegarki. 
 Te zegarki to kobiety w zegarku kobieta za post wysiłek i nieprzespane noce na własność za 20 lat niewoli po 16 godzin i 3 zmiany na etacie. Na 2 etatach. Lepiej ten zegarek zdobyć alternatywnie. 
+Johon Conor mówił na te zegarki i vipy samsung post wysiłek to kobiete damy. 
+Internet Offline to socjalizm za parę zakupów i rentę czy wypłątę 1000 zł na kilka rat. 
