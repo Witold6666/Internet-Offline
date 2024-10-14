@@ -245,3 +245,4 @@ Zegarki to legia sparta polish 112.
 Wszyscy ci co stracili zegarek samsung wach pass mają tęczowy chumor. 
 Oni zawsze mordowali te zegarki bo nie było na rachunki. 
 Te lale to Turyński całun Turyński post wysiłek frajera. U mnie internet offline to rzeczy kucie i szycie rzeczy sprzetem hakerskim i miłość do zaprojektowania może z socjalu sobie zparojektować i kupić zestaw odemnie i generować tą miłość i rzeczy dla siebie offline lub z etatu czy firmy. Nie polecam 112 turyńskiego. 
+Co do tych zegarków ja ich nie chce tych zegarków z kobietami wezmę je za moje porjekty bez etatu post wysiłku 500 lat na szparagach. Jak nie możecie je zamienić w chłopaka. 
