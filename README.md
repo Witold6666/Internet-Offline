@@ -258,3 +258,4 @@ Co do mnie ten vois samsung wach pass, vois TX Terminator Kristiana, Vois Intu c
 Czas się złodzieji NGO pozbyć. 
 Te ceny to żarty kaczor donald na rynku. Drożyzna to królewstwo boże grupa inowierców kali linux smoki i 112 policja i wojsko i watykan. Ta cała drożyżna i afery. Czy braki kobiet u ludzi samotnych bo nie mają kobiety a karzą im płacić 500 zł na 30 lat a na zawsze karzą im płacić z np.: 150 000 zł lub 1 500 000 zł nawet do zasiwatów czy grać w kasynach nic z pensji się nie utrzyma czy renty. Może przejściówki moje coś zrobią. Te ich lale można podrobić i sprzedać tanio w lepszej jakości.  
 Albo karzą iść na zbiory plonów i trzody chlewnej czy żepaku lub szparagów. Ci idioci to rolnicy. Oni się martwią tylko zbiorem żartów i jaj. 
+Nie są futyrystyczni i nie są przyszłościowi tylko są zacofani z jaskini żartów i jaj są jaskiniowcami lub głazodziercami.  
