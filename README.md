@@ -275,3 +275,4 @@ Przez żydów, góroli, Hanysów, Geslerów, Ślązaków nie ma co jeść. Syfy 
 Jak nic nie dostane za projekt urzędnicy będą mieszkać pod mostem na ulicy z Cerffur. Prezenty mam z rzeczami z Google. Kobietę wezmę z populacji 1 ładną i mądrą inteligentną. 
 Nie robię od serca dla CCCP i etatyzmu czy komuny.  
 Nie chce kobiety za te projekty co myśli jak samowolne ząmbi i gdzieś idzie gdzie ją nogi poniosą. 
+Żeby ta kobieta dla mnie nie była 112 harrp samowolka bixbi co sobie gdzieś poszła. 
