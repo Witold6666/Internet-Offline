@@ -289,3 +289,5 @@ Noble polecą do masarni do sochi za te sklepy i czyn pracy i etatyzm że żadna
 Internet Offline jest po to na takie teksty nic nie dostaniesz bo tak wieżysz. Czy nic nie dostaniesz bo nic ci się nie nalerzy. Internet offline jest dla osób co chcą wolności od dawcy biorcy i pogrzebów sztuki wojny. 
 Internet offline jest po to aby były rzeczy z internetu z filmów i gier i bajek. Nie jest zabawką jest narzędziem. 
 Oni ćpają. Bzdury produkują. Szajs produkują. Oreng i te firmy to sprzątaczki i złodzieje. Nikt ich nie kocha. To co produkują są z frazesów ćpunów i reklam nic nie warte pieniędzy. 
+To oprogramowanie jest dla ludzi co chcą rzeczy na handel i chcą dużo brać jak by kraść na Handel. 
+Dziękuje za uwagę. 
