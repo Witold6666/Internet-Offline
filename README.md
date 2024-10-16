@@ -273,3 +273,4 @@ Wojna i mordy nic nie rozwiążą. Radio i serwerownia i wolna energia druk kwan
 Nie wiadomo czy na sklepy starczy energi elektrycznej. Potrzebny jest tokamak łączoany w łańcuch generatorów do generowania dużej ilości energi elektrycznej. 
 Przez żydów, góroli, Hanysów, Geslerów, Ślązaków nie ma co jeść. Syfy oni sprzedają jak grupa kali z gór. Nie ma co jeść to co się je płaci się jak za złoto. A breja jest po 1 zł. 
 Jak nic nie dostane za projekt urzędnicy będą mieszkać pod mostem na ulicy z Cerffur. Prezenty mam z rzeczami z Google. Kobietę wezmę z populacji 1 ładną i mądrą inteligentną. 
+Nie robię od serca dla CCCP i etatyzmu czy komuny.  
