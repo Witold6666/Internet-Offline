@@ -291,3 +291,4 @@ Internet offline jest po to aby były rzeczy z internetu z filmów i gier i baje
 Oni ćpają. Bzdury produkują. Szajs produkują. Oreng i te firmy to sprzątaczki i złodzieje. Nikt ich nie kocha. To co produkują są z frazesów ćpunów i reklam nic nie warte pieniędzy. 
 To oprogramowanie jest dla ludzi co chcą rzeczy na handel i chcą dużo brać jak by kraść na Handel. 
 Dziękuje za uwagę. 
+Nie mam czasu na 112 i wolontariaty po to dałem algorytmy aby dać dużo na te durne akcje szycie dla wolatriatów do skrzyenk z automatu z drukarek kwantowych nowych rzeczy. 
