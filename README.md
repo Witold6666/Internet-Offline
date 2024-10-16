@@ -276,3 +276,4 @@ Jak nic nie dostane za projekt urzędnicy będą mieszkać pod mostem na ulicy z
 Nie robię od serca dla CCCP i etatyzmu czy komuny.  
 Nie chce kobiety za te projekty co myśli jak samowolne ząmbi i gdzieś idzie gdzie ją nogi poniosą. 
 Żeby ta kobieta dla mnie nie była 112 harrp samowolka bixbi co sobie gdzieś poszła. 
+Jak dadzą kobietę z populacji lub bixbi samowolke to nie chcę i dziękuje za CCCP szajs harrp z słabą wolą.   
