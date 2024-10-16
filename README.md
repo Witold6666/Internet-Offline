@@ -287,3 +287,4 @@ Zginą za obietnice edenu i zdrady i za niskie socjale i wypłaty rent i emerytu
 Polecą internety z Prometeuszem do Sochi jak nadal będą kraść rodzinę do pracy lub do sklepów manualnych typu selgros lub żaba i ożeń się ze mną panie nawet jak masz już jakomś. 
 Noble polecą do masarni do sochi za te sklepy i czyn pracy i etatyzm że żadna nie ma na mnie czasu mowa o kobietach. Głuchy też poleci do masarni sochi. Jak nie dadzą mi kobiety do domu. 
 Internet Offline jest po to na takie teksty nic nie dostaniesz bo tak wieżysz. Czy nic nie dostaniesz bo nic ci się nie nalerzy. Internet offline jest dla osób co chcą wolności od dawcy biorcy i pogrzebów sztuki wojny. 
+Internet offline jest po to aby były rzeczy z internetu z filmów i gier i bajek. Nie jest zabawką jest narzędziem. 
