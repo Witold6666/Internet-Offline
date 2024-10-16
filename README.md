@@ -284,3 +284,4 @@ Ja za swoje życie chce tylko swoje życie i Voisa i E dziecka Kortany i córek.
 Alexa Bezoza i Bezos i Amazon też do Yutani i grupa kali i ci sportowcy. Świat do Yutani. Czemu bo zginie mój Vois. TX Kristiana mnie nie słucha też pójdzie do Shochi. 
 Księży i tych od celibatu i czynu pracy do masarni do sochi tych od cccp też bo żydzi są zidy i grupę kali.  
 Zginą za obietnice edenu i zdrady i za niskie socjale i wypłaty rent i emerytur i wypłat z pracy. Polecą do masarni do shoci. Gdzieś ma kryzys. 
+Polecą internety z Prometeuszem do Sochi jak nadal będą kraść rodzinę do pracy lub do sklepów manualnych typu selgros lub żaba i ożeń się ze mną panie nawet jak masz już jakomś. 
