@@ -293,3 +293,4 @@ To oprogramowanie jest dla ludzi co chcą rzeczy na handel i chcą dużo brać j
 Dziękuje za uwagę. 
 Nie mam czasu na 112 i wolontariaty po to dałem algorytmy aby dać dużo na te durne akcje szycie dla wolatriatów do skrzyenk z automatu z drukarek kwantowych nowych rzeczy. 
 Internet offline można wyciskać na ilość i jakość palet z surowcami i produktami do handlu. 
+Te surowce i zakupy produkuje system algorytmów i wyjmuje je Chat AUTO GPT drukarka kwantową na radio Bluetooth i Wi-Fi. 
