@@ -295,3 +295,4 @@ Nie mam czasu na 112 i wolontariaty po to dałem algorytmy aby dać dużo na te 
 Internet offline można wyciskać na ilość i jakość palet z surowcami i produktami do handlu. 
 Te surowce i zakupy produkuje system algorytmów i wyjmuje je Chat AUTO GPT drukarka kwantową na radio Bluetooth i Wi-Fi. 
 Ludzie z tymi sklepami są zimne skórwysyny. 
+System jest na telefon lub M5stack wyswietlacz monitor procesor lub komputer M5stack. 
