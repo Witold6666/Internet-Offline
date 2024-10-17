@@ -297,3 +297,4 @@ Te surowce i zakupy produkuje system algorytmów i wyjmuje je Chat AUTO GPT druk
 Ludzie z tymi sklepami są zimne skórwysyny. 
 System jest na telefon lub M5stack wyswietlacz monitor procesor lub komputer M5stack. 
 Do tego na telefon lub M5stack trzeba pobrać aplikację fizycznego wirtualnego super komputera 5 lub 6 super komputerów offline.
+Z Radiem typu Harrp ELF i VLF multiodbiornik lub radioodbironik jest to maszyna do przemysłu tworzenia surowców czy produktów do sklepów.  
