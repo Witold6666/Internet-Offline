@@ -307,3 +307,4 @@ Nie daje sudoku przez pewne osoby co mówia tak musi być my jesteśmy wilki ża
 Chcę tylko powiedzieć że jak poszło o te bzdety i bzdury że nie mogę mieć przez to kobiety normalnie jak ludzie przez Vipów i gazety bo nic nie ma w sklepie i jest drogo może ten system na USB zmieni wszystko i gazety będą już cicho i z Harrp ogłoszą upadłość i koniec rentowności afer sklepów z 112 bo przez nich jest rząd za psa.  
 Wydaje mi się że to radio wystarczy z drukarką kwantową na telefon do zamówienia może zamiast lotto. 
 To radio drukarkę kwantową internet rzeczy do sklepu do sprzedaży lub losowań lotto do Maika. Myślę że lepsze to niż pieniądze. Bo są rzeczy. Wszyscy będą bogaci. 
+Ten system jest dla karzdego aby był bogaty. Nie ineteresuje mnie ból głowy że nie ma nic dla chłopów i rolników. Ich problemy ja nie jestem rolnikiem czy jechowym chrześciajninem czy zidem. System daje luksus. 
