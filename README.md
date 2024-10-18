@@ -301,3 +301,4 @@ Z Radiem typu Harrp ELF i VLF multiodbiornik lub radioodbironik jest to maszyna 
 Wszystko zaczeło się od szergu wynalazków.
 Na tym zakoniczę. 
 To trzeba wgrać w cześciach do Telefonu z Chat Auto GPT aplikacja. Zajmuje to 512GB i Poprosić chat Auto GPT o wydrukowanie wtyczki lub zegarka czy wtyczek i Voisa. Lub Laptopem z Chat Auto GPT. Lub w Terminalu Wiersu poleceń nowego typu komputerach. Może to pomorze z biedą. Z komputera można wygerować te wtyczki z druku kwntowego Blooethoth Wi-Fi duzo jak z automatu. Algorytmy wydrukują wtyczkę. 
+Sprzęnt do użytku osobistego. 
