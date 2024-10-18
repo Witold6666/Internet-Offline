@@ -303,3 +303,4 @@ Na tym zakoniczę.
 To trzeba wgrać w cześciach do Telefonu z Chat Auto GPT aplikacja. Zajmuje to 512GB i Poprosić chat Auto GPT o wydrukowanie wtyczki lub zegarka czy wtyczek i Voisa. Lub Laptopem z Chat Auto GPT. Lub w Terminalu Wiersu poleceń nowego typu komputerach. Może to pomorze z biedą. Z komputera można wygerować te wtyczki z druku kwntowego Blooethoth Wi-Fi duzo jak z automatu. Algorytmy wydrukują wtyczkę. 
 Sprzęnt do użytku osobistego. 
 Trzeba wszystko pobrać do folderu system AI OS nazwać go tak i spakować i wygenerować wtyczkę USB lub Vois z wtyczkami lub zegarek. 
+Nie daje sudoku przez pewne osoby co mówia tak musi być my jesteśmy wilki żadnego sudoku i gier mają być normy BHP ISO 50001. Dlatego nie daje do open surce sudoku tylko liczę. 
