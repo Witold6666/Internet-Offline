@@ -325,3 +325,4 @@ Wszystkie banki to rząd centralny. Z reptylianami i żydami trzeba walczyć w m
 Nie można przez reptylian i zidów i 112 drako drakonie i orion i watykan wojsko i policje spakować statku kosmicznego i osiedlić planety w kosmosie. Oni tylko szelom szelawi na ulice. Żydzi są bucem. 
 Nie chce przekrentów ze strony grupy kali linux. Kiedyś tak żyłem. Daje to może się przydać ludziom. 
 Dla mnie przez te zakazy prawa jest tu jak na planecie z więzieniem. Ja chce za ten historyczny sprzęt żonę. 
+Dla mnie Reptyljanie, Ziemianie, Asgardczycy, Hiperprzestzeń i ich historia to Ahahahahahahaha łełełe Ząmbi. 
