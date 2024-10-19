@@ -324,3 +324,4 @@ Ja chce za te rzeczy co zaprojektowałem i generatory kobietę z populacji 1 w p
 Wszystkie banki to rząd centralny. Z reptylianami i żydami trzeba walczyć w mark 90 lub mark 100 lub mark 85 czy Iron Men God z bronią energetyczną i telekinezą. Ale energia jest ich walki nie można zrobić przez kwatki i hipisów i ich chamstwo bo nam drukują kasę a karzą sobie płacić za energie elektryczną. My jesteśmy ich niewolnikami przez masonerię. 
 Nie można przez reptylian i zidów i 112 drako drakonie i orion i watykan wojsko i policje spakować statku kosmicznego i osiedlić planety w kosmosie. Oni tylko szelom szelawi na ulice. Żydzi są bucem. 
 Nie chce przekrentów ze strony grupy kali linux. Kiedyś tak żyłem. Daje to może się przydać ludziom. 
+Dla mnie przez te zakazy prawa jest tu jak na planecie z więzieniem. Ja chce za ten historyczny sprzęt żonę. 
