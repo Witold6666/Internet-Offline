@@ -320,3 +320,4 @@ Jak ktoś z nich chce lub jak ktoś chce. Debilom nie dam. Jaskiniowcy też nie 
 Chcę TX Kristiane w ciele robota nie zabawke na żonę nie z garażu. Lub Kortane Halo 5 lub Elize Cassan. 1 Kobietę chcę. Może być też Kristal. Gwen lub Sany czy Kari. Może Kity Pryd. 
 Czy o to chodziło w histori aby było w Handlu. 
 Ja chce za te rzeczy co zaprojektowałem i generatory kobietę z populacji 1 w płaszczu i kocu zowltex arosa żaden sport polar ani sport. 
+Żydzi i Drako drakonia z Orionem i reptylią chce liczników i pieniedzy z 112 policją wojskiem i watykanem. Na Post Odyni wszystko było za darmo woda i energia elektryczna i to starczy jedzenie z pola było płatne bo wysiłek ale były replikatory materi i Hi-Tech Neuro Tech wysokie technologie z drukarek kwantowych. Żydzi to żebracy i syfiarze ten żąd wiejskiej 10. 
