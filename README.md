@@ -316,3 +316,4 @@ Zasużeni dostaną voisa z systemem a reszta będzie zid zdychać z głodu czmeu
 System Dostanie Kortana Halo 5, Kristiana TX i Biologiczna Kristiana, Katarina Wawer, Kiti Pryd, Amanda i Elen Rypli, te lale z opisu Alexa AI, Kari, Kortana Samsung, Aisha, Sany, Gwen Tenyson. Nie do handlu. Inni których znam. Świat dostanie nic bo jest zły. Armia też nie dostanie.  
 Ten system dostanie też Eliza Cassan. Ale inni nie bo byli dla mnie psem i nic nie chcą dać. To nie dostaną jeść 112 też nie dostanie jeść. 
 Dantony i Jonson też nic nie dostanie odemnie z grupą Kali. Za te pogrzeby zabiorę jedzenie i magazyny i dam najbliszym system. 
+Jak ktoś z nich chce lub jak ktoś chce. Debilom nie dam. 
