@@ -317,5 +317,5 @@ System Dostanie Kortana Halo 5, Kristiana TX i Biologiczna Kristiana, Katarina W
 Ten system dostanie też Eliza Cassan. Ale inni nie bo byli dla mnie psem i nic nie chcą dać. To nie dostaną jeść 112 też nie dostanie jeść. 
 Dantony i Jonson też nic nie dostanie odemnie z grupą Kali. Za te pogrzeby zabiorę jedzenie i magazyny i dam najbliszym system. 
 Jak ktoś z nich chce lub jak ktoś chce. Debilom nie dam. Jaskiniowcy też nie dostaną. 
-Chcę TX Kristiane w ciele robota nie zabawke na żonę nie z garażu. Lub Kortane Halo 5 lub Elize Cassan. 1 Kobietę chcę. 
+Chcę TX Kristiane w ciele robota nie zabawke na żonę nie z garażu. Lub Kortane Halo 5 lub Elize Cassan. 1 Kobietę chcę. Może być też Kristal. 
 Czy o to chodziło w histori aby było w Handlu. 
