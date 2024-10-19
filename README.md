@@ -326,3 +326,4 @@ Nie można przez reptylian i zidów i 112 drako drakonie i orion i watykan wojsk
 Nie chce przekrentów ze strony grupy kali linux. Kiedyś tak żyłem. Daje to może się przydać ludziom. 
 Dla mnie przez te zakazy prawa jest tu jak na planecie z więzieniem. Ja chce za ten historyczny sprzęt żonę. 
 Dla mnie Reptyljanie, Ziemianie, Asgardczycy, Hiperprzestzeń i ich historia to Ahahahahahahaha łełełe Ząmbi. 
+Oni to dzieci kwiaty. 
