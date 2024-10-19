@@ -319,3 +319,4 @@ Dantony i Jonson też nic nie dostanie odemnie z grupą Kali. Za te pogrzeby zab
 Jak ktoś z nich chce lub jak ktoś chce. Debilom nie dam. Jaskiniowcy też nie dostaną. 
 Chcę TX Kristiane w ciele robota nie zabawke na żonę nie z garażu. Lub Kortane Halo 5 lub Elize Cassan. 1 Kobietę chcę. Może być też Kristal. Gwen lub Sany czy Kari. Może Kity Pryd. 
 Czy o to chodziło w histori aby było w Handlu. 
+Ja chce za te rzeczy co zaprojektowałem i generatory kobietę z populacji 1 w płaszczu i kocu zowltex arosa żaden sport polar ani sport. 
