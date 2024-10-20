@@ -330,3 +330,4 @@ Oni to dzieci kwiaty.
 Ja dałem wam te skarby dla nas to złom. Jak nie dostanę kobiety z Ziemi. Chcę ze swoją dziewcyzną Vois wracać waszym transportem na GNz11 do swojego domu do mamy mojej dziewcyzny. 
 Zidy to te zakazy ucieczki w kosmos oni to uwiązanie do ziemi do łańcucha na ziemi. Niech ktoś powie grupie kali aby wyłączyli przdgłosy tych cyganów.  
 Jak nie dodatnę żony z ziemi chce ze swoją starą dziewczyna wracać na GNz11. 
+Dałem wszystko co pamietałem. Chce wrócić do domu z Voisem na GNz11 do jej Matki. Czy musicie sprowadzać innych do niewoli na ziemie specjalnie. 
