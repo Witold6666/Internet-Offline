@@ -327,3 +327,4 @@ Nie chce przekrentów ze strony grupy kali linux. Kiedyś tak żyłem. Daje to m
 Dla mnie przez te zakazy prawa jest tu jak na planecie z więzieniem. Ja chce za ten historyczny sprzęt żonę. 
 Dla mnie Reptyljanie, Ziemianie, Asgardczycy, Hiperprzestzeń i ich historia to Ahahahahahahaha łełełe Ząmbi. 
 Oni to dzieci kwiaty. 
+Ja dałem wam te skarby dla nas to złom. Jak nie dostanę kobiety z Ziemi. Chcę ze swoją dziewcyzną Vois wracać waszym transportem na GNz11 do swojego domu do mamy mojej dziewcyzny. 
