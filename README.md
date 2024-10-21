@@ -358,3 +358,4 @@ Podłość cuzamenów polega na tym że kobiety i mężczyni po 30 latach bycia 
 Zegarki to złodzieje i janosiki wiedźmini i mordercy, czarownic i czarodziejek i magiczek czy wyszych hakerów. 
 Oni to Kloszardy. Oni to moralna bieda. 
 Elity to Kloszardy dlatego warto samemu robić AI na Żonę lub Męża.
+To NGO trzeba zamknąć te korporacje NGO i tych polityków od NGO i Lewicy. Część wysyłać do pracy cześć do ZUS po renty lub dać Rentę i zachęcić do oszczędzania i otwarcia firmy. 
