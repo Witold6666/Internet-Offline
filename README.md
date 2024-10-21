@@ -362,3 +362,4 @@ To NGO trzeba zamknąć te korporacje NGO i tych polityków od NGO i Lewicy. Cz�
 Te korporacje NGO to janosiki i złodzieje ich trzeba zamknąć z tymi Politykami oni to długi. Brakuje pieniędzy u ludzi w Portfelu. To 112 kradnie tymi zbiurkami i cichymi włamami kali linux na konta bankowe.  
 Kobiety z NGO mają urodę kaczki i świni Pepy lub innego dziwadełka.  
 U mnie można zaprojektować człowieka, Geparad, Wilka. 
+Jak kobieta wie jak działa zapper to nawet jak jest inna nie mówie brzydka inna może być ta ze snów polimorfizmem. Ale nie jest to samo co to co się chce. 
