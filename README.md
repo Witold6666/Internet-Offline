@@ -369,3 +369,4 @@ Zapper neurobiologicznie może dać moce Post Odyna lub Moce maga czarodziejki c
 Noble Oskary itp. dają ryby syreny Cabira Heine. To ochrona ziołolecznistwa i Farmacji z big morie deep eco. Piłka nożna płaciła duże pieniądze za patenty wynalazków nie było od serca. Noble zabierają patenty i pomysły wynalazków od serca za darmo oni to są mieszkańcy Oceani ryby syreny Cabira Heine Germanie Oni to morskie Psy.   
 Ci z Marvela też są z Oceani też są ryby syreny. 
 Ryby Wieszają. 
+Nie słyszałem o Histori palenia syren ryb na stosie za czary. Ludzi palono na stosie za czary jak np.: Kortany i Zmommer. Ryby mają mózg jak zwierzęta morskie. Luzie mają serce. 
