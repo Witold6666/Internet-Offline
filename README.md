@@ -349,3 +349,4 @@ Watykan za karę nakłania do LGBT. Lub zamienia żonę w faceta do miłości te
 LGBT jest za karę.
 Karę LGBT wymyśił Watykan i Kórł żydów. 
 Grupa Kali jest w 3 kascie kapitalistów. Grupa Kali Podlega pod Watykan. Oni chcą zwalniać ludzi z pracy i wysyłać pod most lub na pensje kapłana. 
+Te buce od gadania od dojarzwłości to waładza za rządów psa są to psy. Oni karzą żyć z kobietą razem za 1000 zł za pensje kapłana i w śmietniku zbierać. Oni stale gadają o dojrzałości. Dla mnie to mięso z buców. 
