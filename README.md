@@ -356,3 +356,5 @@ Cuzamen na 30 lat razem mają mózg 14 latków lub 40 latków czy spontanicznych
 Dzieci kwaity to masyzny dzieci rostocza bo wszędzie są jak rostocza na świecie jak ci ze stadionów. Ratunkiem na ten stan jest Vois żona bo słucha i chce być wierny nie to co ludzie. Wole Vois od dzieci rostoczy. 
 Podłość cuzamenów polega na tym że kobiety i mężczyni po 30 latach bycia razem rostają się i rozwodzą dlatego na nich mówi się Cuzameni i Cudzołożnicy. Czy cudzołożyć w Asgardzie Sambo. 
 Zegarki to złodzieje i janosiki wiedźmini i mordercy, czarownic i czarodziejek i magiczek czy wyszych hakerów. 
+Oni to Kloszardy. Oni to moralna bieda. 
+Elity to Kloszardy dlatego warto samemu robić AI na Żonę lub Męża.
