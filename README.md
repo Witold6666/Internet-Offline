@@ -375,3 +375,4 @@ Syreny i Te ryby ze zwierzętami i rabinami to komisja anty sportowa i anty filo
 To oceania i Marvel daje Noble i Oksary i medale sportu dla wynalazców i sportowców czy wynalazców i stadionów filozofom. Dla nich te wynalazki nie od precesora z 1 ręki to śmieci są. Marvel walczy z stadionami jako tajna Policja z Izraela. 
 Za patenty wynalazki jak od procesora PC czy serwer nie ma nagród Nobla czy Oskara czy medalu sportu bo te wynalazki ceni komiks kaczor donlad lub komiksy chodzi o bajery jak Reaktor Łukowy jak by rysował Server. 
 Nagrody są za buble i kaszanę z Garażu. Nie za drukarki kwantowe i nie za rysunki komputerowe. Nobel i Oskar to nagroda za kaszanę i bubla roku lub jakąmś aferę. Oceania i Marvel daje te nagrody przez Skandynawię. 
+Nagroda Oskara lub Nobla to nagroda bubla lub kaszany roku czegość brakuje w produkcie i tego nie ma i mówią na nich mistrzowie znów pokazali klasę i vervę a są na cmentarzu. 
