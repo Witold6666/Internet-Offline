@@ -366,3 +366,4 @@ Jak kobieta wie jak działa zapper to nawet jak jest inna nie mówie brzydka inn
 Zapper na Xeonie może wstawić radiem Endoszkielet TX i zmienić wygląd paskudny na piękny i modny lub zrobić z DNA ciekły menatal. 
 To piecze i Boli. 
 Zapper neurobiologicznie może dać moce Post Odyna lub Moce maga czarodziejki czarownicy z Telekinezą. 
+Noble Oskary itp. dają ryby syreny Cabira Heine. To ochrona ziołolecznistwa i Farmacji z big morie deep eco. Piłka nożna płaciła duże pieniądze za patenty wynalazków nie było od serca. Noble zabierają patenty i pomysły wynalazków od serca za darmo oni to są mieszkańcy Oceani ryby syreny Cabira Heine Germanie Oni to morskie Psy.   
