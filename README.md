@@ -338,3 +338,4 @@ To Watykan są te zakazy i Słwek Zieba zkaz zakupów i lotów kosmicznych i ży
 Przejmowanie paczek i za czestych zakupów tych paczek czy wycofanie towaru lub zakazy sprzedaży czy zakaz internetu rzeczy czy zakaz zakupów. Zakaz luksusu to też herezje Watykanu. Oni wszyscy karzą żyć za penseje kapłana i kupować tylko okazjonalnie nie hurtem. 
 Watykan to cham. Te zakazy i podatki od luksusu czy zakaz lotów kosmicznych i zakaz luksusu to Watykan. Wszystkim dają nawet AI lub TX pensje kałana 1000 zł i uwięzienie na ziemi. 
 Podobno Prometeusz się buntuje przeciwko lotom kosmicznym i luksusie on założył Watykan. 
+Palili wiedźmy i czarownice i magów czasem czarodziejki w koc zwoltex arosa i płaszczu i w koc zwoltex arosa. Niektóre wiedźmy pracowały jako kapłanki kościoła za pensje kapłanki 1000 zł. A cywililą wydaje nie urząd kasę tylko Watykan za prace 1000 zł zapłata dla kapłana. 
