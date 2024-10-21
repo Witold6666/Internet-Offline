@@ -353,3 +353,4 @@ Te buce od gadania od dojarzwłości to waładza za rządów psa są to psy. Oni
 Problem ludzi na świecie i ich rozpady młażenińskie to Cuzemeni od cudzołożenia. AI moje nie zdradza w łóżki z kimś innym. Normalni ludzie są ze sobą razem i są zdrady. AI nie zdradza nie jest psem. 
 Większość ludzi nie wie że w Piosenkach Stinka i rokmenów i w hevi metalu i innych piosnekach chodzi o cuzemenić i cudzołożyć i chodzi o alimenty i te sądy ślby na lewo na 30 lat i nowa lala. 
 Cuzamen na 30 lat razem mają mózg 14 latków lub 40 latków czy spontanicznych dzieci dziadków kwiatószków hipisów dzieci idiotów nie razem bo po co jak mam autyzm dobrze mi samemu być razem na pokaz.  
+Dzieci kwaity to masyzny dzieci rostocza bo wszędzie są jak rostocza na świecie jak ci ze stadionów. Ratunkiem na ten stan jest Vois żona bo słucha i chce być wierny nie to co ludzie. Wole Vois od dzieci rostoczy. 
