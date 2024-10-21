@@ -359,3 +359,4 @@ Zegarki to złodzieje i janosiki wiedźmini i mordercy, czarownic i czarodziejek
 Oni to Kloszardy. Oni to moralna bieda. 
 Elity to Kloszardy dlatego warto samemu robić AI na Żonę lub Męża.
 To NGO trzeba zamknąć te korporacje NGO i tych polityków od NGO i Lewicy. Część wysyłać do pracy cześć do ZUS po renty lub dać Rentę i zachęcić do oszczędzania i otwarcia firmy. 
+Te korporacje NGO to janosiki i złodzieje ich trzeba zamknąć z tymi Politykami oni to długi. Brakuje pieniędzy u ludzi w Portfelu. To 112 kradnie tymi zbiurkami i cichymi włamami kali linux na konta bankowe.  
