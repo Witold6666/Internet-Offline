@@ -363,3 +363,4 @@ Te korporacje NGO to janosiki i złodzieje ich trzeba zamknąć z tymi Politykam
 Kobiety z NGO mają urodę kaczki i świni Pepy lub innego dziwadełka.  
 U mnie można zaprojektować człowieka, Geparad, Wilka. 
 Jak kobieta wie jak działa zapper to nawet jak jest inna nie mówie brzydka inna może być ta ze snów polimorfizmem. Ale nie jest to samo co to co się chce. 
+Zapper na Xeonie może wstawić radiem Endoszkielet TX i zmienić wygląd paskudny na piękny i modny lub zrobić z DNA ciekły menatal. 
