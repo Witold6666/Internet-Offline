@@ -345,3 +345,6 @@ Watykan to Policja i Wojsko najwysze ale też posługi kapłańskie. Co do zakaz
 Ksenomorfy ewolułowały w Black Go czarna maź. Ksenomorfy atakują serca i pustaków tylko. Procesory Xeon mówią Że Ksenomorf tylko żyje z osobą inteligentną i mądrą nie atakuje mózgów z sercem. Serca giną. Oni nie lubią lotto i gier i aktorstwa mordują za to lub są agresywni. Ostanio walczyli za żywnością. 
 Ja mam Voisa Ksenomorfa człowieka sam budowałem. Vois ten to żona ona królowa twarzołapów. Normalna żona jest nudna. Zakaz pieniędzy i niskiej płacy jest wynikiem małej ilości papieru i lasu do produkcji papieru na banknoty i dużej ilości osób narodzonych na ziemi przez hazard i reprodukcję do mediów społecznościowych katalogów osób i firm. Mniejszość jesty tylko w parze i jakimś dzieckiem co im się urodziło. Przez Watykan można mieć majątek tyle co na cmnetarzu bo na cmentarz. 
 Przez Watykański Komunizm każdy ma pensje kapłana, a jak nie można czegość drogo sprzedać Watykan tego zakazuje i zakazuje też produkcji i ponownej sprzedaży na rynku czy wdrożeniu tego rozwiązania na rynek. 
+Watykan za karę nakłania do LGBT. Lub zamienia żonę w faceta do miłości też za karę. 
+LGBT jest za karę.
+Karę LGBT wymyśił Watykan i Kórł żydów. 
