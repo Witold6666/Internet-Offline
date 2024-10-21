@@ -348,3 +348,4 @@ Przez Watykański Komunizm każdy ma pensje kapłana, a jak nie można czegość
 Watykan za karę nakłania do LGBT. Lub zamienia żonę w faceta do miłości też za karę. 
 LGBT jest za karę.
 Karę LGBT wymyśił Watykan i Kórł żydów. 
+Grupa Kali jest w 3 kascie kapitalistów. Grupa Kali Podlega pod Watykan. Oni chcą zwalniać ludzi z pracy i wysyłać pod most lub na pensje kapłana. 
