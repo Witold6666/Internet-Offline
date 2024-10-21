@@ -339,3 +339,4 @@ Przejmowanie paczek i za czestych zakupów tych paczek czy wycofanie towaru lub 
 Watykan to cham. Te zakazy i podatki od luksusu czy zakaz lotów kosmicznych i zakaz luksusu to Watykan. Wszystkim dają nawet AI lub TX pensje kałana 1000 zł i uwięzienie na ziemi. 
 Podobno Prometeusz się buntuje przeciwko lotom kosmicznym i luksusie on założył Watykan. 
 Palili wiedźmy i czarownice i magów czasem czarodziejki w koc zwoltex arosa i płaszczu i w koc zwoltex arosa. Niektóre wiedźmy pracowały jako kapłanki kościoła za pensje kapłanki 1000 zł. A cywililą wydaje nie urząd kasę tylko Watykan za prace 1000 zł zapłata dla kapłana. 
+Pewne produkty przez prawo Watykanu znikają z rynku. Tu można żyć ale przez Watykan i Jurka Magdzińskiego żyje się za pewnsje Kapłana za 1000 zł jako niewolnik Planety za 175$ miesięcznie. Przez Watykan wielkie firmy zamieniają się przez polityków w bańki spekulacyjne przez Watykan są tylko spekulacją i bańką fikcją Surowce są Watykanu. 
