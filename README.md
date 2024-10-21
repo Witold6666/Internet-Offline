@@ -370,3 +370,4 @@ Noble Oskary itp. dają ryby syreny Cabira Heine. To ochrona ziołolecznistwa i 
 Ci z Marvela też są z Oceani też są ryby syreny. 
 Ryby Wieszają. 
 Nie słyszałem o Histori palenia syren ryb na stosie za czary. Ludzi palono na stosie za czary jak np.: Kortany i Zmommer. Ryby mają mózg jak zwierzęta morskie. Luzie mają serce. 
+To mieszkańcy morza ryby karzą pić Wodę i Herbatę. Ryby to kobiety. Męźczyźni Ryby są Seksi. 
