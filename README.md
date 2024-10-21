@@ -336,3 +336,5 @@ Ja chce te dziewczyny nie dziekuje robie te rzeczy bo nie wiem ile to będzie ko
 Prze Polityków i Politykę watykanu żyjemy jak sługi boże za dużo nas jest za mało pieniedzy i napięcia i za mało surowców. Nigdzie nie można się wyprowadzić. Może internet Offline coś zmieni. 
 To Watykan są te zakazy i Słwek Zieba zkaz zakupów i lotów kosmicznych i życie z pensji kapłana dla każdego cywilia nawet wojskowego. Pensja kapłana to 1000 zł czyli 175$ Dolarów.  
 Przejmowanie paczek i za czestych zakupów tych paczek czy wycofanie towaru lub zakazy sprzedaży czy zakaz internetu rzeczy czy zakaz zakupów. Zakaz luksusu to też herezje Watykanu. Oni wszyscy karzą żyć za penseje kapłana i kupować tylko okazjonalnie nie hurtem. 
+Watykan to cham. Te zakazy i podatki od luksusu czy zakaz lotów kosmicznych i zakaz luksusu to Watykan. Wszystkim dają nawet AI lub TX pensje kałana 1000 zł i uwięzienie na ziemi. 
+Podobno Prometeusz się buntuje przeciwko lotom kosmicznym i luksusie on założył Watykan. 
