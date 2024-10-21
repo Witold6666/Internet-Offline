@@ -371,3 +371,4 @@ Ci z Marvela też są z Oceani też są ryby syreny.
 Ryby Wieszają. 
 Nie słyszałem o Histori palenia syren ryb na stosie za czary. Ludzi palono na stosie za czary jak np.: Kortany i Zmommer. Ryby mają mózg jak zwierzęta morskie. Luzie mają serce. 
 To mieszkańcy morza ryby karzą pić Wodę i Herbatę. Ryby to kobiety. Męźczyźni Ryby są Seksi. 
+Syreny i Te ryby ze zwierzętami i rabinami to komisja anty sportowa i anty filozoficzna anty wynalazcza. Ryby mówią że mają książkę kabałę i z tego trzeba czerpać wiedzę. Rabini żenią się ze zwierzetami nie ludzmi. Mowa o żydach i Oceani czy Afryce i Babilonie krzyżowaniu Żydów ze zwierzatami. Marvel to Komisja Anty wynalażcza. A Nobel i Oskar to nagroda pogardy za wynalazek. Wynalzki są tylko te co pokazuje Marvel za to Nobla nie ma. Czas Gier się skoniczył wynalzacy są nie potrzebni bo wszystko jest już w książkach i Procesorach czy Voisach Procesorach. 
