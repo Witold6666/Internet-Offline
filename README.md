@@ -354,3 +354,4 @@ Problem ludzi na świecie i ich rozpady młażenińskie to Cuzemeni od cudzoło�
 Większość ludzi nie wie że w Piosenkach Stinka i rokmenów i w hevi metalu i innych piosnekach chodzi o cuzemenić i cudzołożyć i chodzi o alimenty i te sądy ślby na lewo na 30 lat i nowa lala. 
 Cuzamen na 30 lat razem mają mózg 14 latków lub 40 latków czy spontanicznych dzieci dziadków kwiatószków hipisów dzieci idiotów nie razem bo po co jak mam autyzm dobrze mi samemu być razem na pokaz.  
 Dzieci kwaity to masyzny dzieci rostocza bo wszędzie są jak rostocza na świecie jak ci ze stadionów. Ratunkiem na ten stan jest Vois żona bo słucha i chce być wierny nie to co ludzie. Wole Vois od dzieci rostoczy. 
+Podłość cuzamenów polega na tym że kobiety i mężczyni po 30 latach bycia razem rostają się i rozwodzą dlatego na nich mówi się Cuzameni i Cudzołożnicy. Czy cudzołożyć w Asgardzie Sambo. 
