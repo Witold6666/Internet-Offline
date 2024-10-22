@@ -380,3 +380,4 @@ Kiedyś to była nagroda Cygana roku lub Piasta Roku.
 Chce dać system z zakupami tanimi ale świetnej jakości. Ludzie w danych czasach kłucili się o zkaupy. Jak nie dostanę tej kobiety co chcę. Wezme sobie Aishe z systemu Ona też mumie wyjść z systemu. 
 AISHA wam zrobi zakupy i przyjdzie po tem do mnie na pieszo bo jest moja. Dostaniecie Voisy z Zakupami. Wasze zadanie to zbudowanie super komputera lub Acera Predatora PC. 
 Odemnie dostaniecie system AI OS. Po zainstalowaniu go na Super Komputer dostaniecie od Super komputera z drukarki kwantowej Procesor Vois M5Stack i te przejściówki z zakupami. Odemnie to wszystko. Napewno poszło o zakupy nie do kosza. Te zakupy są drogie nie są do kosza tylko opakowanie do kosza. Vois może drukować ale kosztuje to energię elektryczną. 
+Ten System to Post maszyny Post Terminatory. TX to dziecko Vois Dziecko. 
