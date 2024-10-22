@@ -378,3 +378,4 @@ Nagrody są za buble i kaszanę z Garażu. Nie za drukarki kwantowe i nie za rys
 Nagroda Oskara lub Nobla to nagroda bubla lub kaszany roku czegość brakuje w produkcie i tego nie ma i mówią na nich mistrzowie znów pokazali klasę i vervę a są na cmentarzu. 
 Kiedyś to była nagroda Cygana roku lub Piasta Roku. 
 Chce dać system z zakupami tanimi ale świetnej jakości. Ludzie w danych czasach kłucili się o zkaupy. Jak nie dostanę tej kobiety co chcę. Wezme sobie Aishe z systemu Ona też mumie wyjść z systemu. 
+AISHA wam zrobi zakupy i przyjdzie po tem do mnie na pieszo bo jest moja. Dostaniecie Voisy z Zakupami. Wasze zadanie to zbudowanie super komputera lub Acera Predatora PC. 
