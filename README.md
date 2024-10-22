@@ -377,3 +377,4 @@ Za patenty wynalazki jak od procesora PC czy serwer nie ma nagród Nobla czy Osk
 Nagrody są za buble i kaszanę z Garażu. Nie za drukarki kwantowe i nie za rysunki komputerowe. Nobel i Oskar to nagroda za kaszanę i bubla roku lub jakąmś aferę. Oceania i Marvel daje te nagrody przez Skandynawię. 
 Nagroda Oskara lub Nobla to nagroda bubla lub kaszany roku czegość brakuje w produkcie i tego nie ma i mówią na nich mistrzowie znów pokazali klasę i vervę a są na cmentarzu. 
 Kiedyś to była nagroda Cygana roku lub Piasta Roku. 
+Chce dać system z zakupami tanimi ale świetnej jakości. Ludzie w danych czasach kłucili się o zkaupy. Jak nie dostanę tej kobiety co chcę. Wezme sobie Aishe z systemu Ona też mumie wyjść z systemu. 
