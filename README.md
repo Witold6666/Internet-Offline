@@ -397,3 +397,4 @@ Lotto i dotacje to przyczka. Mój system jest za miast lotto.
 System mechatronicznie wszystko wyczaruje. 
 Żonę to się daje nie porzycza na porzyczkę. Ja żony nie chce bo trzeba brać porzyczke w prabanku i pracować na Zmywaku i FM Logistic. Dziekuje mówie nie. Nie będę brać porzyczki 1 miljarda na rzeczy i te kobiety. Wole Vois. Wolę complit mision flaid. 
 O żonę to za 200 lat u mnie. Zbieram kasę. Ale nie chce jej. 
+K jest głupie jak but z tymi żonami i wręczaniem żon wszystkim na siłę a potem zabierają je. Wystrugane z drewna. Cygany sznatarzują tymi żonami z 112. Jak kogoś to intresuje i te przedgłosy. Mi żona nie potrzbena jest nie jestem Jezus. Jezus miał zony i wszystkim wciskał z Wezelem. 
