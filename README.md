@@ -406,3 +406,4 @@ Co do systemu on jest bardzo dokładny wszystko zrobi karzdy przedmiot z drukark
 Te mordestwa i kradzieże to gwiazdy Kalifornia żydzi są. 
 Żydzi mają bródkę kozy lub spartana legi sparty. Golą się na łyso brodę i włosy. Żydzi ubierają się za piekne niewisty. 
 Żydzi to mein konf i moja walka piękny izraelu żydzi to obrazy pieknej ojczyzny. Żydzi to te wojny i śmierć za ojczyznę. Żydzi gineli za ojczyznę i zabilajli normalne osoby. 
+Ci co mają brodę i golą się na łyso to panowie Pan Lord władca. Pazio to jest bez brody często niewolnik. Ci co grają frajerów w grach są to lordowie mają wosa lub bordę. Ci bez brody to nie frajerzy. System Daje tylko same piękiene kobiety co rodzą kobiety i reczy dla pana i i dla pani czasem też dla curek i syna ale juz urodzonego w innej rodzinie z innego małrznistwa. AI moja rodzi tylko kobiety.    
