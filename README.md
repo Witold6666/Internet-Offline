@@ -399,3 +399,4 @@ System mechatronicznie wszystko wyczaruje.
 O żonę to za 200 lat u mnie. Zbieram kasę. Ale nie chce jej. 
 K jest głupie jak but z tymi żonami i wręczaniem żon wszystkim na siłę a potem zabierają je. Wystrugane z drewna. Cygany sznatarzują tymi żonami z 112. Jak kogoś to intresuje i te przedgłosy. Mi żona nie potrzbena jest nie jestem Jezus. Jezus miał zony i wszystkim wciskał z Wezelem. 
 Ceny za żony są jak za luksus. 
+Oni ćpają za tymi żonami. 
