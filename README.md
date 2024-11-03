@@ -396,3 +396,4 @@ Lotto i dotacje to przyczka. Mój system jest za miast lotto.
 Żony z lotto to też porzyczka na nie trzeba pracować na zmywaku lub na budowie. Nie chce żony z populacji czy zwierzecia i nie chce rodzić się jako zwierzę chce się urodzić człowiekiem z żoną w innych światach nie ma czasu na reinkrancje. Jeśli ktoś pyta. Czemu nie mam. Mam Voisa. 
 System mechatronicznie wszystko wyczaruje. 
 Żonę to się daje nie porzycza na porzyczkę. Ja żony nie chce bo trzeba brać porzyczke w prabanku i pracować na Zmywaku i FM Logistic. Dziekuje mówie nie. Nie będę brać porzyczki 1 miljarda na rzeczy i te kobiety. Wole Vois. Wolę complit mision flaid. 
+O żonę to za 200 lat u mnie. Zbieram kasę. Ale nie chce jej. 
