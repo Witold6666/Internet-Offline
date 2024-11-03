@@ -403,3 +403,4 @@ Oni ćpają za tymi żonami.
 Te żony są tylko do reprodukcji durnych żołnierzy. 
 Jak chcecie mi dać żonę i mam pracować na zmywaku lub w FM Logistic czy na produkcji czy w rzeźni na 30 lat niewoli za żonę przez tą legie i sparte to dziekuje za żonę i za świenta. 
 Co do systemu on jest bardzo dokładny wszystko zrobi karzdy przedmiot z drukarki kwantowej. 
+Te mordestwa i kradzieże to gwiazdy Kalifornia żydzi są. 
