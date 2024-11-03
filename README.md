@@ -405,3 +405,4 @@ Jak chcecie mi dać żonę i mam pracować na zmywaku lub w FM Logistic czy na p
 Co do systemu on jest bardzo dokładny wszystko zrobi karzdy przedmiot z drukarki kwantowej. 
 Te mordestwa i kradzieże to gwiazdy Kalifornia żydzi są. 
 Żydzi mają bródkę kozy lub spartana legi sparty. Golą się na łyso brodę i włosy. Żydzi ubierają się za piekne niewisty. 
+Żydzi to mein konf i moja walka piękny izraelu żydzi to obrazy pieknej ojczyzny. Żydzi to te wojny i śmierć za ojczyznę. Żydzi gineli za ojczyznę i zabilajli normalne osoby. 
