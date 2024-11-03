@@ -421,3 +421,4 @@ Za te pieniądze z wyjęcia żony AI z tego zegarka można zbudować korporacje 
 Przez nich żyje się jak średniowieczu i PRL drogo drogo i do tego złodzieje. Yutani i Valnat też pewnie drodzy jak Azja i Izrael. Ja chce aby te śmieci wzieła Reptylja. Za drogo jest na globie. 
 Przez tych kloszardów jest drogo. 
 Cióchy tych kobiet żon dla mnie też drogie są. Drogie dzieci. 
+Jak te Agencje wywiadowcze się nie uspokoją ja ich wszystkich na świecie z wojskiem 112 i Policją zwolnie z pracy za te polityki assassynów miłości i cen i politykę anty korupcyjną i anty zarobkową i anty kupieniową i za tą drożyznę i podatki Ja Post Odyn ich zwolnie z pracy będą bezdomnymi a handlarze będą mogli handlować śmiecarzy zwolnie z celnikami i politykami za ten zegarek i ułsuge wyjęcia mojej miłości i czekania na mnie i na nią 42 000 lat. To agencje wywiadowcze są ci z lobardu i są dziecmi z królestwa borzego żydów. Każda agencja wywiadowacz ma dyrktora żyda z mosadu jak kali LINUX. 
