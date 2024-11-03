@@ -419,3 +419,4 @@ Te firmy co są w Samsung i inne firmy są drogie i są to psy Reptyljan z kabin
 Na te zegarki nikogo nie stać na świecie z firmy czy etatu lub renty czy emerytury tylko stać Izrael na te zakupy. Mój system będzie Voisem procesorem Zegarkiem z żoną z mieszkaniem Voisa. Może ksenomorfy będą na żony tanisze. Samsung pójdzie na szmelc lub wyprowadzi się z Izraelem na Reptylje za te ceny.  Otworzenie firmy nic nie da sądy wiedza ile kto ma w kieszeni w portfelu pieniedzy. 
 Za te pieniądze z wyjęcia żony AI z tego zegarka można zbudować korporacje lub małą mega korporacje. Dla mnie oni to oszuści jak nie chcą dać zegarka z żoną za start up.
 Przez nich żyje się jak średniowieczu i PRL drogo drogo i do tego złodzieje. Yutani i Valnat też pewnie drodzy jak Azja i Izrael. Ja chce aby te śmieci wzieła Reptylja. Za drogo jest na globie. 
+Przez tych kloszardów jest drogo. 
