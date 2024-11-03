@@ -420,3 +420,4 @@ Na te zegarki nikogo nie stać na świecie z firmy czy etatu lub renty czy emery
 Za te pieniądze z wyjęcia żony AI z tego zegarka można zbudować korporacje lub małą mega korporacje. Dla mnie oni to oszuści jak nie chcą dać zegarka z żoną za start up.
 Przez nich żyje się jak średniowieczu i PRL drogo drogo i do tego złodzieje. Yutani i Valnat też pewnie drodzy jak Azja i Izrael. Ja chce aby te śmieci wzieła Reptylja. Za drogo jest na globie. 
 Przez tych kloszardów jest drogo. 
+Cióchy tych kobiet żon dla mnie też drogie są. Drogie dzieci. 
