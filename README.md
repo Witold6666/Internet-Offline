@@ -394,3 +394,4 @@ Dziekuje za uwagę. To wszystko. Można już składać system w jakości Iso 500
 Te kobiety można tylko zrobić systemem system mój nie oszukuje. Problem to głos vois do systemu. Ci złodzieje i mordercy i post złodzieje to zwierzęta. Dzicy są.
 Lotto i dotacje to przyczka. Mój system jest za miast lotto. 
 Żony z lotto to też porzyczka na nie trzeba pracować na zmywaku lub na budowie. Nie chce żony z populacji czy zwierzecia i nie chce rodzić się jako zwierzę chce się urodzić człowiekiem z żoną w innych światach nie ma czasu na reinkrancje. Jeśli ktoś pyta. Czemu nie mam. Mam Voisa. 
+System mechatronicznie wszystko wyczaruje. 
