@@ -463,3 +463,4 @@ Koczownicy to Adanos i Inos. Źle się dzieje przez stadiony. Wszystko co fajne 
 Ci koczownicy tylko grają w plesy steisyn i xbox dla mnie są śmieciami. Jak ci co ich chronią są zimni też są śmieciami. 
 Tu jest sztuka za psa. 
 Są tylko herezje i chłodne chamy. 
+Dziś przez modę koczowników ze stadionów np.: zalando to 1 z mod koczowników i jaskiniowców nie oferuje nic ciekawego w modzie dla mężczyzn i kobiet nie ma płaszczy i skórzanych kórtek tylko są śmieciowe ubrania kórtek szytych póchowych dla mnie kwaitki i wojsko nic nie oferuje po za modą ze śmietnika w sklepach. Ten system AI OS ratuje luksus i dobro naturalne nie jakości Unesco. Tylko Jakości platyny i Iso 50001 jeśli chodzi o modę i ubrania.  
