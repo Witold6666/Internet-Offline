@@ -447,3 +447,4 @@ Cenny za mój system chce takie jak w granicach zarobków na rencie lub wypłaci
 To co daje to Vois jest. Oni to skamery ci z smasunga i ich teksty może i nie wydaje mi się oni są Scamerami.   
 W kórtce sportowej i ubraniach sportowych chodzi bydło bez kultury morderców i post złodzieji. Czasem się zdarza że bydło specjalnie zakłada miłe ubrania aby je wyśmiać. Nie pamietam aby ktoś w miłych ubraniach był psem i agresorem. To ci ze stadionów żydzi tak chodzą w sportowych ubraniach i czasem je zakładają i wymiewują te osoby. 
 Te lale i te zegarki są chorę przepijają kasę na NGO i Wino i inne urzywki wolontariaty i inne cyrki rabunkowe na majątek Jezu móje miłośerdzie. 
+Ich czeka BCI AI prcesor Xeon programowania DNA i mózgu lub kremacja ciała eutanazja. Tych od LGBT czeka śmierć. 
