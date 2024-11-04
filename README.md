@@ -441,3 +441,4 @@ Co do systemu to luksus do generowania tych rzeczy i tych świadomości tych kob
 Ten zegarek to zwierze nie pozwala grać w gry i pić energetyków i pepsi czy heraty tylko karze pić wodę. Mój zegarek a raczej prcesory nie robią tych zakazów. 
 Te zegarki to jakiś chłop od samsunga. Bix Bi to chłop. Mój system nie jest chłop to kobieta. 
 Ten zegarek samsung wach pass to chłopaki karate karateki chłopcy. Mój system taki nie jest.  One nie dają się dostknąć są jak ksiądz co słucha Harrp ze Szwrjcari. 
+Ten zegarek Samsung Wach Pass i ceny za wyjęcie syntetycznego człowieka kobiety to szczyt bezczelności i chamstwa że tak drogo oni za niego chcą. Moj system może dać coś lepszeo jak projekt awatar lepsze gwiazdy niż ten szmelc. 
