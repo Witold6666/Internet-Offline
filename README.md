@@ -459,3 +459,4 @@ Ta szmaciarska moda wróciła ze stadionów i oni te vipy to wirus upośledzenia
 Te Vipy te gówniarze wszystko zniszczyli razem z Izraelm i Szwajcarią zniszczyli świat z religijnymi głównie Jechowe i chrzścijanie i zidy. Świat szedł na gwarę więzieną psów.  
 To jest LGBT gówrniarska moda ze stadionów oni mają autyzm i zespół aspergera. Dla mnie to jaskiniowcy. Mój system te rzeczy da i je odzyska i uszyje i zaprojektuje i da żonę idealną nie ze stadionów. 
 Ci ze stadionów to jacyś niewolnicy i kóltura Koczowników z więzień. 
+Koczownicy to Adanos i Inos. Źle się dzieje przez stadiony. Wszystko co fajne znika z rynku jak baniki spekulacyjne przez tych co wysypują śmieci na ulice. 
