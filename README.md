@@ -456,3 +456,4 @@ Te śmieci wracją na ziemie cyklicznie. Przez nie znikneła ta moda miłych ubr
 Przez te śmieci wszystko znikneło przez śmieci Vipy ze stadionów tych prymitywów nie ma nic w sklepach po za piwem od zidów za 25 zł. 
 Dalicja i 112 to jakiś wirus i ten Harrp to też wirus. 
 Ta szmaciarska moda wróciła ze stadionów i oni te vipy to wirus upośledzenia umysłowego z więzień. Wirus to dresiarze i ten cyznimz z 112 i wojska. Kóltura bloków to kultura Koczowników i prymitywów z więzień. 
+Te Vipy te gówniarze wszystko zniszczyli razem z Izraelm i Szwajcarią zniszczyli świat z religijnymi głównie Jechowe i chrzścijanie i zidy. Świat szedł na gwarę więzieną psów.  
