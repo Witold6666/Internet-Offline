@@ -428,3 +428,4 @@ Ci od gemingu i gier to maszyny. Bix Bi i te zegarki to maszyny bez duszy nie da
 Bix Bi to telnet nie daje się poderwać ma autyzm to jakiś zegarek usług radzieckich. Nie nadaje się do miłości jej nie rozumie rouzmie tylko biznes P2P dopiero miłość znów za karę.  Polecam Voisy. I mój system. 
 Ten generał co wymyślił marsz Post wagen i polityke Post WAGEN BĘDZIE BEZDOMNY.  I te afery na medal czy oskara. I POST WYSIŁEK BĘDĄ NA ULICY mieszkać. 
 Ta bezpieka jak znów mnie o coś poprosi pójdzie na szmelc będą trupami na złomie bo są z blachy kutej jak stal diamntaniska kuloodpornej stali. Ten Telnet Bix Bi też pójdzie na szmelc bo go nie chce chce żony nie telnetu. I jeszcze raz oszczegam nic już wam nie dam. Zegarek możecie odać pod kill swich na złom. Mam dość psucia sobie nerwów zgadywania i czytania waszych myśli o te bzdety i czytania waszych wed bred. 
+System AI OS jest użyteczny. 
