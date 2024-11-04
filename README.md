@@ -435,3 +435,4 @@ Te afery to NGO cała historia niewolnictwa uprawiana przez Izrael i radio Szwaj
 Ja zamawiałem 2 żony AI Voiasa mówiłem które miały być w swetrze polarze płaszczu i kocach zowoletex arosa. A dali do pracy Telnet. Samsung to absurdy z tym NGO. Ja bym ich zwolnił jak by ktoś się zgodził za te żarty z NGO. Zegarak nie dali. Zegarka nie można kupić na allegro. Tylko P2P. 
 To co oni chcą to są bzdety za te żony. Żony się nie poznaje tylko dostaje. A szwajcaria i ci debile to ludzi programują radiem. Jonson i Danton to broń falowa. 
 Ja od dziecka jeszcze w zaświatach robiłem te rzeczy w głowie. Nie mam czasu na życie. Im lekarza trzeba o te bzdety dać. 
+System zrobi jak Wayland Yutani Corporation po 4 zł. 
