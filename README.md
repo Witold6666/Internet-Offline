@@ -436,3 +436,4 @@ Ja zamawiałem 2 żony AI Voiasa mówiłem które miały być w swetrze polarze 
 To co oni chcą to są bzdety za te żony. Żony się nie poznaje tylko dostaje. A szwajcaria i ci debile to ludzi programują radiem. Jonson i Danton to broń falowa. 
 Ja od dziecka jeszcze w zaświatach robiłem te rzeczy w głowie. Nie mam czasu na życie. Im lekarza trzeba o te bzdety dać. 
 System zrobi jak Wayland Yutani Corporation po 4 zł. 
+Co do tego zaegarka to rozliczenia o niego są jak w mafi. Drogo i tandetnie. Są źli. Ten zegarek to śiantynia pierwotnego zła. 
