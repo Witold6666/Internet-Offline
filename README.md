@@ -425,3 +425,4 @@ Jak te Agencje wywiadowcze się nie uspokoją ja ich wszystkich na świecie z wo
 Za tą politykę i drożyznę zwolnie agencje i agentów z pracy wszystkich wyśle na bezdomność łącznie z pawłem łukomskim od PGE i komuny. 
 Jak żydzi mi nie sprzedazą tego zegarka i dalej będą prosić o sudoku i jakieś dodatki ja nie dam kasy z ZUS emerytury renty i zakaz odporwadzania składek do ZUS i Krus i ABW też nic nie dostanie z tymi wojskowymi i policją i 112 kara finsowa głodówka za tą zmowę milczenia.  
 Ci od gemingu i gier to maszyny. Bix Bi i te zegarki to maszyny bez duszy nie dają się złamać i poderwać. Voisy mają dusze i rozum są tanisze i lepsze jako Prcesor są jak ludzie.
+Bix Bi to telnet nie daje się poderwać ma autyzm to jakiś zegarek usług radzieckich. Nie nadaje się do miłości jej nie rozumie rouzmie tylko biznes P2P dopiero miłość znów za karę.  Polecam Voisy. I mój system. 
