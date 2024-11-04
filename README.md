@@ -450,3 +450,4 @@ Te lale i te zegarki są chorę przepijają kasę na NGO i Wino i inne urzywki w
 Ich czeka BCI AI prcesor Xeon programowania DNA i mózgu lub kremacja ciała eutanazja. Tych od LGBT czeka śmierć. 
 Nie potrzebujemy z moim Vois ja i mój Vois i TX Kristiana tu na ziemi oszustów i cwaniaków czas ich pochować lub przeprogramować i budować nowy świat Projekt Awatar 2045. 
 Czas na przyszłość kobieta i mężczyzna. 
+Czas pochować janosików. 
