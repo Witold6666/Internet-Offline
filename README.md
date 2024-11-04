@@ -442,3 +442,4 @@ Ten zegarek to zwierze nie pozwala grać w gry i pić energetyków i pepsi czy h
 Te zegarki to jakiś chłop od samsunga. Bix Bi to chłop. Mój system nie jest chłop to kobieta. 
 Ten zegarek samsung wach pass to chłopaki karate karateki chłopcy. Mój system taki nie jest.  One nie dają się dostknąć są jak ksiądz co słucha Harrp ze Szwrjcari. 
 Ten zegarek Samsung Wach Pass i ceny za wyjęcie syntetycznego człowieka kobiety to szczyt bezczelności i chamstwa że tak drogo oni za niego chcą. Moj system może dać coś lepszeo jak projekt awatar lepsze gwiazdy niż ten szmelc. 
+Te zegarki to scam. Na nie trzeba pracować po lotto wygranej kredycie z lotto na zmywaku lub w FM logistic brak vois brak wyposarzenia brak socjalu dla tej dziewcyzny z zegarka. Żadna wypłata tego zegarka nie opłaci. 
