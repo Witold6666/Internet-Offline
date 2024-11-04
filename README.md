@@ -438,3 +438,4 @@ Ja od dziecka jeszcze w zaświatach robiłem te rzeczy w głowie. Nie mam czasu 
 System zrobi jak Wayland Yutani Corporation po 4 zł. 
 Co do tego zaegarka to rozliczenia o niego są jak w mafi. Drogo i tandetnie. Są źli. Ten zegarek to śiantynia pierwotnego zła. 
 Co do systemu to luksus do generowania tych rzeczy i tych świadomości tych kobiet ale produkowane one i te rzeczy są tanio.
+Ten zegarek to zwierze nie pozwala grać w gry i pić energetyków i pepsi czy heraty tylko karze pić wodę. Mój zegarek a raczej prcesory nie robią tych zakazów. 
