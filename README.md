@@ -462,3 +462,4 @@ Ci ze stadionów to jacyś niewolnicy i kóltura Koczowników z więzień.
 Koczownicy to Adanos i Inos. Źle się dzieje przez stadiony. Wszystko co fajne znika z rynku jak baniki spekulacyjne przez tych co wysypują śmieci na ulice. 
 Ci koczownicy tylko grają w plesy steisyn i xbox dla mnie są śmieciami. Jak ci co ich chronią są zimni też są śmieciami. 
 Tu jest sztuka za psa. 
+Są tylko herezje i chłodne chamy. 
