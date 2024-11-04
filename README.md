@@ -469,3 +469,5 @@ Oni to Trashowie.
 Tu są tylko stadionowi Trashowie cygany i romy i zidy. 
 Nagrody w kasynach i lotto są z kosza jak i pomysłodawca Jonson i Danton Trashmeni. 
 To wszystko co jest teraz jest do kosza i z kosza do kosza. 
+Płaszcz damski kaczuszka też jest z kosza. 
+Internet wolny jest przez Trashmenów z kosza do kosza bo z kosza znów do sklepów. Eklodzy to Trashowie.  
