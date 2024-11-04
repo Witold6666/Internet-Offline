@@ -458,3 +458,4 @@ Dalicja i 112 to jakiś wirus i ten Harrp to też wirus.
 Ta szmaciarska moda wróciła ze stadionów i oni te vipy to wirus upośledzenia umysłowego z więzień. Wirus to dresiarze i ten cyznimz z 112 i wojska. Kóltura bloków to kultura Koczowników i prymitywów z więzień. 
 Te Vipy te gówniarze wszystko zniszczyli razem z Izraelm i Szwajcarią zniszczyli świat z religijnymi głównie Jechowe i chrzścijanie i zidy. Świat szedł na gwarę więzieną psów.  
 To jest LGBT gówrniarska moda ze stadionów oni mają autyzm i zespół aspergera. Dla mnie to jaskiniowcy. Mój system te rzeczy da i je odzyska i uszyje i zaprojektuje i da żonę idealną nie ze stadionów. 
+Ci ze stadionów to jacyś niewolnicy i kóltura Koczowników z więzień. 
