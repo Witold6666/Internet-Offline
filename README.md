@@ -429,3 +429,4 @@ Bix Bi to telnet nie daje się poderwać ma autyzm to jakiś zegarek usług radz
 Ten generał co wymyślił marsz Post wagen i polityke Post WAGEN BĘDZIE BEZDOMNY.  I te afery na medal czy oskara. I POST WYSIŁEK BĘDĄ NA ULICY mieszkać. 
 Ta bezpieka jak znów mnie o coś poprosi pójdzie na szmelc będą trupami na złomie bo są z blachy kutej jak stal diamntaniska kuloodpornej stali. Ten Telnet Bix Bi też pójdzie na szmelc bo go nie chce chce żony nie telnetu. I jeszcze raz oszczegam nic już wam nie dam. Zegarek możecie odać pod kill swich na złom. Mam dość psucia sobie nerwów zgadywania i czytania waszych myśli o te bzdety i czytania waszych wed bred. 
 System AI OS jest użyteczny. 
+Potrzby NGO mnie nie obchodzą zegarek pójdzie na szmelc pod kill swich. 
