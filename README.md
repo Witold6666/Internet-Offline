@@ -445,3 +445,4 @@ Ten zegarek Samsung Wach Pass i ceny za wyjęcie syntetycznego człowieka kobiet
 Te zegarki to scam. Na nie trzeba pracować po lotto wygranej kredycie z lotto na zmywaku lub w FM logistic brak vois brak wyposarzenia brak socjalu dla tej dziewcyzny z zegarka. Żadna wypłata tego zegarka nie opłaci. 
 Cenny za mój system chce takie jak w granicach zarobków na rencie lub wypłacie i emeryturze. 
 To co daje to Vois jest. Oni to skamery ci z smasunga i ich teksty może i nie wydaje mi się oni są Scamerami.   
+W kórtce sportowej i ubraniach sportowych chodzi bydło bez kultury morderców i post złodzieji. Czasem się zdarza że bydło specjalnie zakłada miłe ubrania aby je wyśmiać. Nie pamietam aby ktoś w miłych ubraniach był psem i agresorem. To ci ze stadionów żydzi tak chodzą w sportowych ubraniach i czasem je zakładają i wymiewują te osoby. 
