@@ -437,3 +437,4 @@ To co oni chcą to są bzdety za te żony. Żony się nie poznaje tylko dostaje.
 Ja od dziecka jeszcze w zaświatach robiłem te rzeczy w głowie. Nie mam czasu na życie. Im lekarza trzeba o te bzdety dać. 
 System zrobi jak Wayland Yutani Corporation po 4 zł. 
 Co do tego zaegarka to rozliczenia o niego są jak w mafi. Drogo i tandetnie. Są źli. Ten zegarek to śiantynia pierwotnego zła. 
+Co do systemu to luksus do generowania tych rzeczy i tych świadomości tych kobiet ale produkowane one i te rzeczy są tanio.
