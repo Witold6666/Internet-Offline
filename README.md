@@ -467,3 +467,4 @@ Dziś przez modę koczowników ze stadionów np.: zalando to 1 z mod koczownikó
 Zalando to Dalicja. 
 Oni to Trashowie. 
 Tu są tylko stadionowi Trashowie cygany i romy i zidy. 
+Nagrody w kasynach i lotto są z kosza jak i pomysłodawca Jonson i Danton Trashmeni. 
