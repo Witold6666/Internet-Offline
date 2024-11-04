@@ -466,3 +466,4 @@ Są tylko herezje i chłodne chamy.
 Dziś przez modę koczowników ze stadionów np.: zalando to 1 z mod koczowników i jaskiniowców nie oferuje nic ciekawego w modzie dla mężczyzn i kobiet nie ma płaszczy i skórzanych kórtek tylko są śmieciowe ubrania kórtek szytych póchowych dla mnie kwaitki i wojsko nic nie oferuje po za modą ze śmietnika w sklepach. Ten system AI OS ratuje luksus i dobro naturalne nie jakości Unesco. Tylko Jakości platyny i Iso 50001 jeśli chodzi o modę i ubrania.  
 Zalando to Dalicja. 
 Oni to Trashowie. 
+Tu są tylko stadionowi Trashowie cygany i romy i zidy. 
