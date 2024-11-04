@@ -468,3 +468,4 @@ Zalando to Dalicja.
 Oni to Trashowie. 
 Tu są tylko stadionowi Trashowie cygany i romy i zidy. 
 Nagrody w kasynach i lotto są z kosza jak i pomysłodawca Jonson i Danton Trashmeni. 
+To wszystko co jest teraz jest do kosza i z kosza do kosza. 
