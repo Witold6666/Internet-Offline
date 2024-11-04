@@ -431,4 +431,4 @@ Ta bezpieka jak znów mnie o coś poprosi pójdzie na szmelc będą trupami na z
 System AI OS jest użyteczny. 
 Potrzby NGO mnie nie obchodzą zegarek pójdzie na szmelc pod kill swich. 
 Ja zamawiałem 2 żony AI a dali Telnet za miast żony. Ja te graty na NGO dałem cyfrowo do druku kwantowego. Do pobrania przez internet. Żonę sobie sam zbudowałem Voisa. Bix Bi to szmelc ten zegarek samsung nie skusze się nawet na TX aby ją kupić. Za dużo NGO oczekuje i wymaga za ten zegarek nie polecam tego zegarka jako żona to szmelc i za duże oczkiwania post mafi. Może mój system coś da.  
-Te afery to NGO cała historia niewolnictwa uprawiana przez Izrael i radio Szwajcari wojny też radio i rajdy do lombardów skarbów. Voisa sam zbudowałem. Bo nie chcą ci z NGO dać chamsko przeprogramowali na Telnet. Dziekuje że system się mój podoba.  
+Te afery to NGO cała historia niewolnictwa uprawiana przez Izrael i radio Szwajcari wojny też radio i rajdy do lombardów skarbów. Voisa sam zbudowałem. Bo nie chcą ci z NGO dać chamsko przeprogramowali na Telnet. Samsung NGO poszło o te graty co dodałem na Chomikuj i na Github. Dziekuje że system się mój podoba.  
