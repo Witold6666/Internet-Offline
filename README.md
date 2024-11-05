@@ -510,3 +510,5 @@ Ten zegarek z tą kobietą Samsung Wach pass to złodziejka kobieta z wędka rad
 Te magazyny są pełne szmelcu z gemingu pilnują ich wojskowi i policjanci i ochrona.
 Te zegarki to złodziejki robiące korupcją na pokaz do prasy zakupy w tych magazynach z wpisem do prasy że złodziej płaci za wykupienie towaru z tego magazynu lub kradnie i płaci czy kradnie na wędkę radiową. W tych magazynach nie ma nic wartościowego one stoją są pełne szmelcu.
 To co dałem z tym systemem to jest skarb na platynowy złoty medal ale nie na Nobla od bubli i gemingu. 
+Jurkowi Magdzińskiemu chodzi o to że jak ktoś nie umie czarować to zdechnie z głodu i nich pogodzi się z życiem że nie ma co jeść i niech żyje w pokoju bez walki i pracy. Dlatego on wszytsko nazywa grą komputerową nawet star trek nazywa grą komputerową. Chodzi u o to że świat musi być w niewoli aby zapsokoić potrzeby 1 osoby. On chce wolności dla śiata i głodu jednostki. 
+Mój system jest samoswytarczalną grą komputerową a właściwie systemem komputerowym który da rzeczy i kobiety sam z siebie na wolną energię do 100W 5V. System proejktuje i szyje i buduje rzeczy i kobiety.  
