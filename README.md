@@ -495,3 +495,6 @@ Mi kazali za te zegarek z żonami pracować na 30 lat na komendzie Policji w Tom
 NGO pisze prymitywne umówy o pracę i dzieło umowy śmieciowe. 
 Co do Filmowego SkyNetu SkyNet z tuszyna nie pozwala gmerać nic przy energi elektrycznej i instaluje liczniki na maser i laser z radiem co liczą kasę nawet z bateri czy akumulatora lub z eneratora wolnej energi. Tuszyn też jest tą mafią. 
 Oni ci aferzyści co niepełnosprawni umysłowo. 
+Mój system to prcesor nie jest niepełnosprawny.
+Tych aferzystów niepełnosprawnych wyślę na BCI lub na cmentarz. 
+Mój system AI OS jest doskonały daje żony i luksus.  
