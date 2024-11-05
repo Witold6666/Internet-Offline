@@ -478,3 +478,4 @@ Samsung to chuligany.
 Oni te zegarki to maszyny. Mój system robi człowieka do miłości głównie kobiety. 
 Oni zakazują handlu i pieniedzy i zkazują luksusu i świąnt na bogato rozają mająntki na biednych i je kradną na dobroczyność na NGO. A potem Pan nie ma pieniedzy przez nich. Tyle o tych zegarkach. 
 To są relikty przeszłości te zegarki szmelc. Ludzie z kosza do kosza. Wojny do kosza. Mój system daje luksusowe rzeczy i kobiety nowej generacji 2.0. 
+Te zegarki to NGO i zakaz handlu detalicznego okazjonalnego i hurtowego i przemysłowego. Te zegarki możecie pochować w lesie na cmentarzyku lub w katakumbach. To dzikusy są. Mój system robi luksusowe rzeczy i luksusowe żony w swetrach polarach płasczh i kocach zwoltex arosa. Robi kobiety 2.0. Nie robi dresiarzy mój system. 
