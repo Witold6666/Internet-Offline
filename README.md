@@ -484,3 +484,5 @@ Czym jest NGO. Jak będziesz uprawiać fitnes zawodowo i będziesz grzeczny i wy
 Mój system wszystko da. 
 Wracjąc do Umowy w NGO aby dostać od nich Polar lub Płaszcz czy sweter kobieta musiała wystapić w programie przed kamerami i być gwiazdą progamów aby coś dostać. Oni są maszynami. Na tym polega zakaz handlu przez tą polis i 112 i wojsko.  
 Ostry Miki od kaczora Donalda kazał paru osobą być gwiazdami bo chcieli od nich ubrań i luksusu to kazali im być gwiazdami. 
+Nic od tych zegarków i legi sparty za pieniądze się nie dostanie tylko umowa o dzieło umowy śmieciowe. 
+Co do tych osób sprzedawanych jako AI oni nie lubią nosić Sweterów, Polarów, Płaszczy, Futer sztucznych i tych Kocy zwoltex Arosa. Kłucą się o markowe szmaty sztuki wojny te dzieci. Oni to wojownicy prawdy życiowej dawania w twarz pięcią i mieczem czy bronią. Dla mnie oni jako AI to Chuligany są. Mój system nie robi Chuliganów. 
