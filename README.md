@@ -502,3 +502,4 @@ Te zgearki Samsung do kremacji będą to niepełnosprawni są. Zegarki samsung t
 To Romy, Cygany, Zidy, Szwjcarzy zkazali wszystkich tych fajnych rzeczy i tych wymarzonzy żon i karzą brać żony wybrane z góry przez górę bez projetkowania bo partia tak zadecydował oni są dziećmi. 
 Dla mnie te afery i kłutnie wszystkich stron to niepełnosprawni ich rozmowy to wojny niepełnosprawnych umysłowo. 
 Ja w systemie dałem dynamo na Korbę USB i Post Baterię Kwantową z przetwornicami i te przejścióki i spiralę zapper drukarkę i generator radio. 
+Te rozmowy o PGE to niepełnosprawni. 
