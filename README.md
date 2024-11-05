@@ -489,3 +489,4 @@ Co do tych osób sprzedawanych jako AI oni nie lubią nosić Sweterów, Polarów
 To co nazwyali cynicznymi żartami lub jajami lub żartami lub satyrą czy pogrzbeami żartowymi to było za karę przez to NGO i Harrp. 
 Ja te maszyny wyłącze bo jestem Post Odyn i Iron Men God Witold Dębiec. Tych cyników te maszyny ze stadionów wyłącze radiem. Chce tu Pokoleń tylko 2.0 kobiet w Swetrze, Polarze, Płaszczu z wełny, Płaszczu futrze sztucznym i kocach zwoltex Arosa. Nie chce tu maszyn i Tuszyna tego 112 tej Policji. 
 Ten zegarek Samsung Galaxy wach pass AI to leoś. Mój system to człowiek i robi rzeczy dla człowieka. 
+Lub Inne umowy NGO zegarek z żoną na zawsze pod warunkiem nie na 30 lat porzyczka ale praca na wolontariacie za 300 zł na jedzenie na komendzie Policji np.: w Tuszynie przez 10 lub 30 lat bo inaczej żona to porzyczka na 30 lat. Tacy są cwaniacy w NGO.  
