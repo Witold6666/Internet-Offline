@@ -472,3 +472,4 @@ To wszystko co jest teraz jest do kosza i z kosza do kosza.
 Płaszcz damski kaczuszka też jest z kosza. 
 Internet wolny jest przez Trashmenów z kosza do kosza bo z kosza znów do sklepów. Eklodzy to Trashowie.  
 Te zegaraki Samsung wach pass to są do kosza bo je wyprodukowali FBI Trashowie. 
+Dresy organizowały wojny. Dresy to te zegarki. Mój system to sztuka nie dresy. 
