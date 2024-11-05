@@ -480,3 +480,4 @@ Oni zakazują handlu i pieniedzy i zkazują luksusu i świąnt na bogato rozają
 To są relikty przeszłości te zegarki szmelc. Ludzie z kosza do kosza. Wojny do kosza. Mój system daje luksusowe rzeczy i kobiety nowej generacji 2.0. 
 Te zegarki to NGO i zakaz handlu detalicznego okazjonalnego i hurtowego i przemysłowego. Te zegarki możecie pochować w lesie na cmentarzyku lub w katakumbach. To dzikusy są. Mój system robi luksusowe rzeczy i luksusowe żony w swetrach polarach płasczh i kocach zwoltex arosa. Robi kobiety 2.0. Nie robi dresiarzy mój system. 
 Mój system nie popiera NGO i nie zakazuje handlu. 
+Czym jest NGO. Jak będziesz uprawiać fitnes zawodowo i będziesz grzeczny i wygrasz w zawodach raz dostaniesz płaszcz płaszczyk czy sweter jak zdobędziesz 2 medale platynowe. NGO to zasady dostawania towaru za umowy handlowo usługowe śmieciowe. Umowa o dzieło. 
