@@ -503,3 +503,4 @@ To Romy, Cygany, Zidy, Szwjcarzy zkazali wszystkich tych fajnych rzeczy i tych w
 Dla mnie te afery i kłutnie wszystkich stron to niepełnosprawni ich rozmowy to wojny niepełnosprawnych umysłowo. 
 Ja w systemie dałem dynamo na Korbę USB i Post Baterię Kwantową z przetwornicami i te przejścióki i spiralę zapper drukarkę i generator radio. 
 Te rozmowy o PGE to niepełnosprawni. 
+Te rzeczy co daję to bajery i te kobiety to też bajery. 
