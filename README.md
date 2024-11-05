@@ -493,3 +493,4 @@ Lub Inne umowy NGO zegarek z żoną na zawsze pod warunkiem nie na 30 lat porzyc
 To jest Ten Cham cccp NGO o którym światu mówie od narodzin. 
 Mi kazali za te zegarek z żonami pracować na 30 lat na komendzie Policji w Tomaszowie Maszowieckim a jak ja chciałem dla niej ubrań i kocy kazali grać w grach komputerowych jako aktor główna postać gry w grach na PC za te ubrania i udzielać wywiadów o życiu i grach o mnie. Nie mam czasu na te bzdety i NGO tej mafi. Bo inaczej żona tylko na 30 lat. Zegarek wyrzuciłem za płot z żonami. Tych assassynów fiansowych od NGO tylko czeka cmęntarz lub BCI bo ta Policja jest cham. 
 NGO pisze prymitywne umówy o pracę i dzieło umowy śmieciowe. 
+Co do Filmowego SkyNetu SkyNet z tuszyna nie pozwala gmerać nic przy energi elektrycznej i instaluje liczniki na maser i laser z radiem co liczą kasę nawet z bateri czy akumulatora lub z eneratora wolnej energi. Tuszyn też jest tą mafią. 
