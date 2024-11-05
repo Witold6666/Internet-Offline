@@ -506,3 +506,4 @@ Te rozmowy o PGE to niepełnosprawni.
 Te rzeczy co daję to bajery i te kobiety to też bajery. 
 Komuniści i FBI z Komunicją wymyślali różne drune zegarki z szamba. 
 Co do umysłu FBI oni mózgu nie mają. Oni szmelc sprzedają. 
+Ten zegarek z tą kobietą Samsung Wach pass to złodziejka kobieta z wędka radiową może kibol ubrany w kobietę. Służył do kradzierzy rzeczy. Mój system AI OS przejściówki szyje i kuje. 
