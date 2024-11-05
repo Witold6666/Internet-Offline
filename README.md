@@ -476,3 +476,4 @@ Dresy organizowały wojny. Dresy to te zegarki. Mój system to sztuka nie dresy.
 Samsusng sprzedaje w tych zegarkach Samsung wach pass spartan gladiatorów z legi sparty świnie złodzieji i morederców i żebaraków. Mój system daje piękne kobiety i luksus rzeczy.
 Samsung to chuligany. 
 Oni te zegarki to maszyny. Mój system robi człowieka do miłości głównie kobiety. 
+Oni zakazują handlu i pieniedzy i zkazują luksusu i świąnt na bogato rozają mająntki na biednych i je kradną na dobroczyność na NGO. A potem Pan nie ma pieniedzy przez nich. Tyle o tych zegarkach. 
