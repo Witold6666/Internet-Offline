@@ -491,3 +491,4 @@ Ja te maszyny wyłącze bo jestem Post Odyn i Iron Men God Witold Dębiec. Tych 
 Ten zegarek Samsung Galaxy wach pass AI to leoś. Mój system to człowiek i robi rzeczy dla człowieka. 
 Lub Inne umowy NGO zegarek z żoną na zawsze pod warunkiem nie na 30 lat porzyczka ale praca na wolontariacie za 300 zł na jedzenie na komendzie Policji np.: w Tuszynie przez 10 lub 30 lat bo inaczej żona to porzyczka na 30 lat. Tacy są cwaniacy w NGO.  
 To jest Ten Cham cccp NGO o którym światu mówie od narodzin. 
+Mi kazali za te zegarek z żonami pracować na 30 lat na komendzie Policji w Tomaszowie Maszowieckim a jak ja chciałem dla niej ubrań i kocy kazali grać w grach komputerowych jako aktor główna postać gry w grach na PC za te ubrania i udzielać wywiadów o życiu i grach o mnie. Nie mam czasu na te bzdety i NGO tej mafi. Bo inaczej żona tylko na 30 lat. Zegarek wyrzuciłem za płot z żonami. Tych assassynów fiansowych od NGO tylko czeka cmęntarz lub BCI bo ta Policja jest cham. 
