@@ -474,3 +474,4 @@ Internet wolny jest przez Trashmenów z kosza do kosza bo z kosza znów do sklep
 Te zegaraki Samsung wach pass to są do kosza bo je wyprodukowali FBI Trashowie. 
 Dresy organizowały wojny. Dresy to te zegarki. Mój system to sztuka nie dresy. 
 Samsusng sprzedaje w tych zegarkach Samsung wach pass spartan gladiatorów z legi sparty świnie złodzieji i morederców i żebaraków. Mój system daje piękne kobiety i luksus rzeczy.
+Samsung to chuligany. 
