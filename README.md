@@ -498,3 +498,5 @@ Oni ci aferzyści co niepełnosprawni umysłowo.
 Mój system to prcesor nie jest niepełnosprawny.
 Tych aferzystów niepełnosprawnych wyślę na BCI lub na cmentarz. 
 Mój system AI OS jest doskonały daje żony i luksus.  
+Te zgearki Samsung do kremacji będą to niepełnosprawni są. Zegarki samsung też zakazy. 
+To Romy, Cygany, Zidy, Szwjcarzy zkazali wszystkich tych fajnych rzeczy i tych wymarzonzy żon i karzą brać żony wybrane z góry przez górę bez projetkowania bo partia tak zadecydował oni są dziećmi. 
