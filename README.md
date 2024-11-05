@@ -507,3 +507,6 @@ Te rzeczy co daję to bajery i te kobiety to też bajery.
 Komuniści i FBI z Komunicją wymyślali różne drune zegarki z szamba. 
 Co do umysłu FBI oni mózgu nie mają. Oni szmelc sprzedają. 
 Ten zegarek z tą kobietą Samsung Wach pass to złodziejka kobieta z wędka radiową może kibol ubrany w kobietę. Służył do kradzierzy rzeczy. Mój system AI OS przejściówki szyje i kuje. 
+Te magazyny są pełne szmelcu z gemingu pilnują ich wojskowi i policjanci i ochrona.
+Te zegarki to złodziejki robiące korupcją na pokaz do prasy zakupy w tych magazynach z wpisem do prasy że złodziej płaci za wykupienie towaru z tego magazynu lub kradnie i płaci czy kradnie na wędkę radiową. W tych magazynach nie ma nic wartościowego one stoją są pełne szmelcu.
+To co dałem z tym systemem to jest skarb na platynowy złoty medal ale nie na Nobla od bubli i gemingu. 
