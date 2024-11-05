@@ -486,3 +486,4 @@ Wracjąc do Umowy w NGO aby dostać od nich Polar lub Płaszcz czy sweter kobiet
 Ostry Miki od kaczora Donalda kazał paru osobą być gwiazdami bo chcieli od nich ubrań i luksusu to kazali im być gwiazdami. 
 Nic od tych zegarków i legi sparty za pieniądze się nie dostanie tylko umowa o dzieło umowy śmieciowe. 
 Co do tych osób sprzedawanych jako AI oni nie lubią nosić Sweterów, Polarów, Płaszczy, Futer sztucznych i tych Kocy zwoltex Arosa. Kłucą się o markowe szmaty sztuki wojny te dzieci. Oni to wojownicy prawdy życiowej dawania w twarz pięcią i mieczem czy bronią. Dla mnie oni jako AI to Chuligany są. Mój system nie robi Chuliganów. 
+To co nazwyali cynicznymi żartami lub jajami lub żartami lub satyrą czy pogrzbeami żartowymi to było za karę przez to NGO i Harrp. 
