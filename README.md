@@ -483,3 +483,4 @@ Mój system nie popiera NGO i nie zakazuje handlu.
 Czym jest NGO. Jak będziesz uprawiać fitnes zawodowo i będziesz grzeczny i wygrasz w zawodach raz dostaniesz płaszcz płaszczyk czy sweter jak zdobędziesz 2 medale platynowe. NGO to zasady dostawania towaru za umowy handlowo usługowe śmieciowe. Umowa o dzieło. 
 Mój system wszystko da. 
 Wracjąc do Umowy w NGO aby dostać od nich Polar lub Płaszcz czy sweter kobieta musiała wystapić w programie przed kamerami i być gwiazdą progamów aby coś dostać. Oni są maszynami. Na tym polega zakaz handlu przez tą polis i 112 i wojsko.  
+Ostry Miki od kaczora Donalda kazał paru osobą być gwiazdami bo chcieli od nich ubrań i luksusu to kazali im być gwiazdami. 
