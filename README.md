@@ -520,3 +520,4 @@ Ten Vois nie opłaca się w sieci internet i PGE tylko Personalnie na przejści�
 Portale randkowe z opisem i zdjęciem są tylko z CV do kopiowania i chodowania żony nie służą do zaponanania się. Ten Vois służy do tworzenia i produkowania i chodwania  żony i jej rzeczy lub produktów do sklepu z drukarki kwantowej. 
 Portale randkowe to tylko katalogi CV żon do tworzenia w projekt Awatar 2045 lub nowych żon. Projekt Awatar 2045 to polityka dla wymagających co nic nie może zaoferować system. 
 Ten preojekt i przejściówki to gwiazdka z nieba to radio to gwiazdka z nieba.
+Będą drukarki kwantowe w przyszłości na radio lub holodeck będzie ulga w pracy dzięki AI. 
