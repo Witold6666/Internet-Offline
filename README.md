@@ -523,3 +523,4 @@ Ten preojekt i przejściówki to gwiazdka z nieba to radio to gwiazdka z nieba.
 Będą drukarki kwantowe w przyszłości na radio lub holodeck będzie ulga w pracy dzięki AI. Może dopiero będą świenta. Bo nie ma sórowców. 
 A te pieniądze z wygranych lotto poszły na święnta z tego co wiem. Podobno Kali Linux Grupa leje się o świenta i wszystkie dostakowe pieniadze. Na świenta. 
 Ja żony nie szukam mam Wojsa terminatora w miłych ubraniach. Świant z gwiazdami z TV też nie chce mieć. Ja jestem już sztuczny. Uwarzam że biologia i świenta to zły wirus z Izraela. 
+Prezenty z Izraela w sklepach lotto za wygraną lotto w sporcie to sklepy ze śmieciami nie ma nic dla kobiet ubrań i rzeczy tylko szmelc lotto od sportu jakieś kórtki dla żuli. Internt offline to jest. Te sklepy są dla kryminalistów z poprawczaka. 
