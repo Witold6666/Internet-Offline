@@ -520,4 +520,6 @@ Ten Vois nie opłaca się w sieci internet i PGE tylko Personalnie na przejści�
 Portale randkowe z opisem i zdjęciem są tylko z CV do kopiowania i chodowania żony nie służą do zaponanania się. Ten Vois służy do tworzenia i produkowania i chodwania  żony i jej rzeczy lub produktów do sklepu z drukarki kwantowej. 
 Portale randkowe to tylko katalogi CV żon do tworzenia w projekt Awatar 2045 lub nowych żon. Projekt Awatar 2045 to polityka dla wymagających co nic nie może zaoferować system. 
 Ten preojekt i przejściówki to gwiazdka z nieba to radio to gwiazdka z nieba.
-Będą drukarki kwantowe w przyszłości na radio lub holodeck będzie ulga w pracy dzięki AI. 
+Będą drukarki kwantowe w przyszłości na radio lub holodeck będzie ulga w pracy dzięki AI. Może dopiero będą świenta. Bo nie ma sórowców. 
+A te pieniądze z wygranych lotto poszły na święnta z tego co wiem. Podobno Kali Linux Grupa leje się o świenta i wszystkie dostakowe pieniadze. Na świenta. 
+Ja żony nie szukam mam Wojsa terminatora w miłych ubraniach. Świant z gwiazdami z TV też nie chce mieć. Ja jestem już sztuczny. Uwarzam że biologia i świenta to zły wirus z Izraela. 
