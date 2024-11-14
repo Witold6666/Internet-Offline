@@ -531,3 +531,4 @@ Ja nie wpuszczę ludzi od świant do swojego domu jak będą w płaszczu typu ka
 Jak te afery się skończą i wszystcy pójdą do lekarza na BCI. To opracuje rząd drukarki kwantowe i generatory wolnej energi do taniej produkcji rzeczy i luksusu czy kobiet. 
 Za kilka lat nie będzie mnie na ziemi wyprowadzam się na GNz11 w zbroi starka mark 85. To zostawiam dla histori wyjaśnienia tych afer odpowiedzie na te problemy.  
 Za kilka lat czas się porzegnać. Mam dość tych afer i jakiś zegarków. Wyprowadzę się w kosmos w mark 85. Tu już nie ma miejsca do życia tylko są kanciapy nie mieszkania czy domy. Dom moim zdaniem powinien mieć 8000 m2 i kosztować 200 zł za rachunki razem. Tu tylko jest lewica i Anty Tifha 447 legi sparty.    
+Ten luksus można wydrukować na USB. 
