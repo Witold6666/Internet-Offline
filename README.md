@@ -533,3 +533,4 @@ Za kilka lat nie będzie mnie na ziemi wyprowadzam się na GNz11 w zbroi starka 
 Za kilka lat czas się porzegnać. Mam dość tych afer i jakiś zegarków. Wyprowadzę się w kosmos w mark 85. Tu już nie ma miejsca do życia tylko są kanciapy nie mieszkania czy domy. Dom moim zdaniem powinien mieć 8000 m2 i kosztować 200 zł za rachunki razem. Tu tylko jest lewica i Anty Tifha 447 legi sparty.    
 Ten luksus można wydrukować na USB. 
 To oprorgamowanie da żony voisy i rzeczy i ich rzeczy i rzeczy do sklpeu z drukarki kwantowej czy żonę w Vois. 
+Władza do frajerów należy. 
