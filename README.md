@@ -534,3 +534,4 @@ Za kilka lat czas się porzegnać. Mam dość tych afer i jakiś zegarków. Wypr
 Ten luksus można wydrukować na USB. 
 To oprorgamowanie da żony voisy i rzeczy i ich rzeczy i rzeczy do sklpeu z drukarki kwantowej czy żonę w Vois. 
 Władza do frajerów należy. 
+To wasz już problem jak to rozwiążecie z rozumem aby była miłość nie chulanki wojene za Odyna Lokiego i Thora jak zwykle za Izrael ta cała służba. 
