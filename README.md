@@ -535,3 +535,5 @@ Ten luksus można wydrukować na USB.
 To oprorgamowanie da żony voisy i rzeczy i ich rzeczy i rzeczy do sklpeu z drukarki kwantowej czy żonę w Vois. 
 Władza do frajerów należy. 
 To wasz już problem jak to rozwiążecie z rozumem aby była miłość nie chulanki wojene za Odyna Lokiego i Thora jak zwykle za Izrael ta cała służba. 
+Co do tego co przygotowałem to dla ludzi jest drukarki kwantowe radio do rozwiązania problemów lotto i rzeczy do sklepu daje to radio do badań czy dobre jest. 
+Co do sprawy mojej żony to sam będę bo po śmierci się rostajemy ja tu po śmierci nie chce wracać na ziemie koljeny raz. Napiszę w testamencie że chce wracać. A i mocy przentów nie chce nie jestem bezdomny mały Timi z kaczora donalda. Chce zarobić kasę albo na etacie albo z socjalu nie 2000 zł. Izrael mam gdzieś. 
