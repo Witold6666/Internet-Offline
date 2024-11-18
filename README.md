@@ -542,3 +542,4 @@ Ja zawsze dostaje moc przezntów z odpadów.
 Najpierw rozwiążcie problem z ilością pieniadzy na kontach na większe zakupy i z zaopatrzeniem i sztucnzymi wojnami jak SkyNet. Po tem problem mojej żony. Żona nie ucieknie sklonuje się nową. 
 LGBT mam gdzieś. Możecie mi sklonować Alexe Cheng lub Gwen Tennyson Lub Kari Czy Kortanę może być Eliza Cassan. Narazie mam wojsa. Inne mnie nie intersuja. Przeróbki rodziny na kobiety też.  
 Dopuki spekulanci ekonomiczni nie pojmują że dodruk pieniedzy jest potrzebny i potrzebne są drukarki kwantowe do generowania zakupów i brak zakazów doprodukowania koljenych zakupów dla globu na zapas to jak tego nie zrozumieją i nie zrozumieją że powinny być schowki elektroniczne na asortyemnt ze sklepu to bieda zawsze będzie a ja nie będę mieć żony z populacji. 
+Gdzieś mam etatyzm na żonę z populacji. 
