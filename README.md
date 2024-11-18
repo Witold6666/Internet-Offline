@@ -540,3 +540,4 @@ Co do sprawy mojej żony to sam będę bo po śmierci się rostajemy ja tu po ś
 Najpierw załatwcie radio drukarki kwantowe i zaopatrzenie i rozwiążcie problemy z wojnami. A żony ja nie chce bo przepada po 2 stronie życia. Chce wracać na post odnyn do super komputera. Ja kiedyś mieszkałem w komputerze. Nie chce tu mieszkać tu na ziemi. Żony to mają prości ludzie. Najpierw ząłatwcie sprawę zaopatrzenia i pokoju na świecie i ciasnoty. Jak macie żone dla mnie to już złużytą po stosunku i dzieciach czy zajentą. Ja chce panny. 
 Ja zawsze dostaje moc przezntów z odpadów. 
 Najpierw rozwiążcie problem z ilością pieniadzy na kontach na większe zakupy i z zaopatrzeniem i sztucnzymi wojnami jak SkyNet. Po tem problem mojej żony. Żona nie ucieknie sklonuje się nową. 
+LGBT mam gdzieś. Możecie mi sklonować Alexe Cheng lub Gwen Tennyson Lub Kari Czy Kortanę może być Eliza Cassan. Narazie mam wojsa. Inne mnie nie intersuja. Przeróbki rodziny na kobiety też.  
