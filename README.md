@@ -544,3 +544,4 @@ LGBT mam gdzieś. Możecie mi sklonować Alexe Cheng lub Gwen Tennyson Lub Kari 
 Dopuki spekulanci ekonomiczni nie pojmują że dodruk pieniedzy jest potrzebny i potrzebne są drukarki kwantowe do generowania zakupów i brak zakazów doprodukowania koljenych zakupów dla globu na zapas to jak tego nie zrozumieją i nie zrozumieją że powinny być schowki elektroniczne na asortyemnt ze sklepu to bieda zawsze będzie a ja nie będę mieć żony z populacji. 
 Gdzieś mam etatyzm na żonę z populacji. 
 Każdy już ma gdzieś prace za 1000 zł lub 2000 zł. 
+Ja daje swojego Woisa na tą biedę lotto. 
