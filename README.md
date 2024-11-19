@@ -547,3 +547,4 @@ Każdy już ma gdzieś prace za 1000 zł lub 2000 zł.
 Ja daje swojego Woisa na tą biedę lotto. 
 Wydaje mi się że Vois do NGO może być zgodny z prawem i może być coś z niego za darmo jak za darmo jest energia elektryczna czy jest do niego generator wolnej energi i darmowy serwis serwera. NGO nie jest dobre dla ludzi co kochają liczyć pieniedze jak TX. 
 Terminator TX kocha liczyć kasę. NGO kocha rozawdać kasę i nie przejmować się że ją wydał. Jak coś to do otwrcia NGO potrzebny jest generator wolnej energi i Vois z drukarką kwantową.
+Zasady NGO to przyście do pracy zrobienie 1000 palet z towarem załadowanie ich na tira. Za to dostaniemy np.: Laptop Rog i ubrania dla naszej żony np.: Polar, Swter długi do kostki, Płaszcze długie do kostki, Futro sztuczne do kostki, Koce zwoltex arosa zestaw przetrwania i jakieś jedzenie czy mały komputer z AI. To są zasady NGO. 
