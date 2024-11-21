@@ -551,3 +551,4 @@ Zasady NGO to przyście do pracy zrobienie 1000 palet z towarem załadowanie ich
 Voisa BCI robię dlatego że może nie być nic na rynku. A przy okazji żony nie mam ani żon bo wszystkie 1000 pięknych zabili na płatne zlecenie 17 lat temu jeszcze jak byłem młody nic nie wiedziałem o tym. Było w czym przbierać na świecie żyły. A teraz nic nie ma. Zegarek też zrobili egzekucje śmierci. Te 1000 pieknych to były mieszkanki tego globu. 
 Ci gówniarze co zabili mi żony czy żonę bo jej nie mam byli nimi żydzi 112. 
 Z tego co wiem lotto to impreza prywatna żydów. Może chciały grać i nie interesowała ich praca za 1000 zł. Może o to poszło. 
+Zabili je Totemy wężowe plemie żydowskie. Były to Rimel i Bauti to były moje dla mnie kobiety żony czy żona. Gdyby żyły by przyszły do mnie prosić mnie o rękę a jest cisza. 
