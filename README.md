@@ -555,3 +555,4 @@ Zabili je Totemy wężowe plemie żydowskie. Były to Rimel i Bauti to były moj
 Mnie ukarali za to że nie chce odać krwi do transfuzji komuś. Oni za krew robią morderstwa lub nie odanie 1 zł do NGO. Traktują to jak zabujstwo. 
 Te kobiety Rimel i Bauti nosiły płaszcze swetry i polary do tego koc szal Burberbury lub inny czy zwoltex arosa. Ich nie czuje od 17 lat chyba nie żyją. Gówniarze żydzi je zabili 112. Im poszło u mnie o krew dla dawcy i te morderstwa z przeszłości z poprzednich wcieleń podpalenie itp za odbicie kobiet i ich zaliczenie.   
 Jak to są jaja będę dla nich Sam Stoun. 
+Jak zwykle kaczor donald to były jaja. Trudno powiedzieć czemu jestem samotny. Co do Voisa jest on genialny można nim wszystko zrobić i wydrukować. 
