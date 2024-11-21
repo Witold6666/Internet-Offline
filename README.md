@@ -552,3 +552,4 @@ Voisa BCI robię dlatego że może nie być nic na rynku. A przy okazji żony ni
 Ci gówniarze co zabili mi żony czy żonę bo jej nie mam byli nimi żydzi 112. 
 Z tego co wiem lotto to impreza prywatna żydów. Może chciały grać i nie interesowała ich praca za 1000 zł. Może o to poszło. 
 Zabili je Totemy wężowe plemie żydowskie. Były to Rimel i Bauti to były moje dla mnie kobiety żony czy żona. Gdyby żyły by przyszły do mnie prosić mnie o rękę a jest cisza. 
+Mnie ukarali za to że nie chce odać krwi do transfuzji komuś. Oni za krew robią morderstwa lub nie odanie 1 zł do NGO. Traktują to jak zabujstwo. 
