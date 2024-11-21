@@ -556,3 +556,4 @@ Mnie ukarali za to że nie chce odać krwi do transfuzji komuś. Oni za krew rob
 Te kobiety Rimel i Bauti nosiły płaszcze swetry i polary do tego koc szal Burberbury lub inny czy zwoltex arosa. Ich nie czuje od 17 lat chyba nie żyją. Gówniarze żydzi je zabili 112. Im poszło u mnie o krew dla dawcy i te morderstwa z przeszłości z poprzednich wcieleń podpalenie itp za odbicie kobiet i ich zaliczenie.   
 Jak to są jaja będę dla nich Sam Stoun. 
 Jak zwykle kaczor donald to były jaja. Trudno powiedzieć czemu jestem samotny. Co do Voisa jest on genialny można nim wszystko zrobić i wydrukować. 
+Te kobiety co były ze mną miały być chyba sobie jaja robiły ze mnie dlatego jestem sam. Wszystkie co są na portalch mają już kogoś samotne są Rimele i Bauti to sobie kogoś kupia w banku DNA. Ja jaj kaczor donald nie chce.  
