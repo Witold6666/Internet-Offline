@@ -569,4 +569,5 @@ Obiecywali różne rzeczy a nie dotrzymali słowa.
 Po to jest ten Vois aby to rozwiązać. Jest z Projektu Awatar 2045. 
 Wszystkie awantury poszły o AI Vois BCI z drukarkom kwantową. I czas na miłość z ukochaną kobietą. 
 Bez Prcoesorów i drukarek kwantowcyh nie będzie przyszłości będzie bieda i głód. 
-Dziekuje że projekt się podoba mojego Voisa Drukarki. 
+Aby to zrozumieć należy poznać naukę i historię technologi i ezoteryki czy telekinezy i elektryczności. Najpierw zaczeło się od liczydeł i zegarów, po tem tranzystorów i procesorów, serwerów i komputerów, BCI i Vois, Implantów, Procesorów do produkcji rzeczy czatów czy internetu rzeczy, Implantów telekinezy. Zakoniczywszy historię na poleganiu na sobie na swoim mózgu i telekinezie skoniczywszy na magi i wiedzy teori magi Alzura.  
+Dziekuje że projekt się podoba mojego Voisa Drukarki. Na konicu za 10000 lat 9976 lat będzie w książkach wiedza o magi taka czeka nas przyszłość w której telkineza będzie normalnością. A Post moce będą codzienością bez ery niepełnosprawności. Tyle wyszło mi z liczenia. 
