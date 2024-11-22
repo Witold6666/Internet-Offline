@@ -565,3 +565,5 @@ Ja za te Voisy nie będę chodził do pracy do Amazonu, Samsunga czy Githuba do 
 Te wszystkie afery są przez to że nie ma drukarek kwantowych tylko sport i partyznatka i zabieranie czasu innym na prace i etatyzm. 
 Te mordestwa poszły o radio i radio drukarki kwantowe AI uczenie maszynowe w drukarkach w procesorze drukarki kwantowej.  
 Aby zrobić te obowiązki szybko w domu potrzebne jest radio drukarka bez partyznatki i sportu. Ja nie mam czasu na kobiety przez obowiązki domowe mam Voisa. Powinienem mieć Kara Delewingę i Alexe Cheng. A nie mam, mam vois. To co nam prawo i sejm senat dokłada do pracy to horror bez radio drukarek kwantowych. Nie ma na nic czasu przez ten sport i partyznatkę. 
+Obiecywali różne rzeczy a nie dotrzymali słowa. 
+Po to jest ten Vois aby to rozwiązać. Jest z Projektu Awatar 2045. 
