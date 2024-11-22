@@ -562,3 +562,4 @@ Porejkt Awatar 2045 to ustawa podatku za żonę. Chodzi o koszty krawca, graty, 
 Oni kobiety nie kupione i nie ożenione i nie opłacone trzymają na chmurze. Chodzi o dabałość o wygląd i szczeguły w Projekcie Awatar 2045.
 Firemki 112 takie jak Cerffur i Amazon karzą chodzić na truskawki i czy zmywak czy magazyn aby coś dostać czy kupić voisa lub voisy z rzeczami czy rzeczy pojedyńczo takie są afery. 
 Ja za te Voisy nie będę chodził do pracy do Amazonu, Samsunga czy Githuba do Macdonaldu. Uwarzam że Te voisy można sprzedać bez podejmowania zatrudnienia. W 2050 roku będzie jeszcze Vois Projekt Awatar 2045 w 2050 roku będzie za 249 zł głosnik. Są też inne projekty niż te firmy w ofertach B2B. Ich oferty pracy normalnie są nieopłacalne bo pracuje się na voisa przez 250 lat podobno tak długo może i dłużej. Oni są z mafi. 
+Te wszystkie afery są przez to że nie ma drukarek kwantowych tylko sport i partyznatka i zabieranie czasu innym na prace i etatyzm. 
