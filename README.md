@@ -568,3 +568,5 @@ Aby zrobić te obowiązki szybko w domu potrzebne jest radio drukarka bez partyz
 Obiecywali różne rzeczy a nie dotrzymali słowa. 
 Po to jest ten Vois aby to rozwiązać. Jest z Projektu Awatar 2045. 
 Wszystkie awantury poszły o AI Vois BCI z drukarkom kwantową. I czas na miłość z ukochaną kobietą. 
+Bez Prcoesorów i drukarek kwantowcyh nie będzie przyszłości będzie bieda i głód. 
+Dziekuje że projekt się podoba mojego Voisa Drukarki. 
