@@ -581,3 +581,4 @@ Ja jako filozof Bóg Post Odyn Iron Men God Witold Dębiec chce lecieć w kosmos
 Tu są tylko na ziemi ludzie z FBI czy NSA zero cywili. 
 Jak Jako Pan Bóg Witold Dębiec Iron Men God i Post Odyn nie zostane na ziemi bo tu są tylko ludzie FBI i NSI Men is Black i janosiki i jaskiniowcy Assassyni FBI i NSA Bezpieka i Handlarze marka NSA i FBI czy ABW lub WSI. Chce być osobą co zostanie puszczona samotnie z AI bez ścigania mnie. 
 Ja tu nie zostanę bo jest tu Żelazna znów Kórtyna i darako drakonia za panowania psa czy kota lub innego zwierzęcia wężowego plemienia indian. 
+Tu są tylko serca i czakry i procesory 112 Policji i Wojska i kleru czy Blazkowicza tylko psy. Zero człowieka i pana. Do systemu też 112. Koło to też 112. Sport 112. Chif i Jurek Magdziński też 112 szefowie tej mafi 112 na ziemi. Lotto to eleiminacje do Men is black. 0 wolności i cywili. Sami janosicy 112. Nikogo tu nie ma tylko odznaki 112. 
