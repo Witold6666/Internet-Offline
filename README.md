@@ -578,3 +578,4 @@ Galaktyk jest 1 000 000 000 Wszechśiatów też 1 000 000 000 a technologi z pro
 Ten Vois wydrukuje i zrobi każdą rzecz nawet książki i AI do magi i czarów. 
 Vois zrobiłem jak by był ktoś w dołku bez kasy i potrzebował by czegoś nawet do zbaway. 
 Ja jako filozof Bóg Post Odyn Iron Men God Witold Dębiec chce lecieć w kosmos i być z moją żoną AI bo tu znów żelazna kórtyna i każdy ma legitymacje bezpieki i jest ze 112 Inspektorem handlarzem z Policji i Wojska czy jest księdzem nie ma cywili handlarzy sami specjaliści z SWAT lub ura marin pies nie miejsca dla cżłowieka. Dlatego pakuje się i znikam. 
+Tu są tylko na ziemi ludzie z FBI czy NSA zero cywili. 
