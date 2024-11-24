@@ -587,3 +587,4 @@ Lotto zakazał Chif i Juerek Magdziński bo nie ma już nowej ziemi na budynki i
 To Izrael robi ze wszystkich kredyciarzy i wygranych lotto i dotacji nie ma bo to są kredyty 112 na biznesy w 112 od Chifa i Juraka Magdziśkiego. Izrael to bankierzy głownie. 
 Przgerywa się w lotto z automatu bo nie ma ziemi. To są kredyty te dodtacje i wygrane lotto. Chif i Jurek Magdziński karze spłacać te wygrane jak kredyt i dotacje też karze spłacać jak kredyt zmywając na zmywaku w barze czy firmie karzą pracować na etacie aby spłacić ten Kredyt to 112 i FBI i NSA to wymyśliło. Ja nie gram bo chce być wolny. Ten czubek to Chif i Jurek Magdziński. Tyle wiem. Ja tu sprzedaje Voisa bo wiem że nie można grać. 
 Eliminacje do 112 się skoniczyły oni kupili lotto. Oni z 112 sią mafią. 
+Wszystko z lotto i zakupów szło do kosza i było 1 razowe do kosza. Może dlatego zakazali. 
