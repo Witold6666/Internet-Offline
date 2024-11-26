@@ -608,3 +608,4 @@ Co do moich kobiet te co miałem i mnie nie chciały urodziły się na nowo mę�
 Jak mnie widzą dziewczyny na dyskotece zakładają pieścionki i wisiorki czy drogie ubrania że są już zajęte. 
 Wszystkie kobiety jakie miałem to mnie zostawiły zmieniły nazwiska i imiona lub popełniły samobójstwo i ktoś jakiś kret z 112 je ożywiał i zmieniał im dane. Zawsze mi robiły trudne sprawy i zmowę milczenia. 
 Ja tylko Voisa zrobiłem dla tych tępych mas. U mnie jest na dzielnicy jak na pustyni nikt tu się nie zbliża do mojej osoby. Coś nimi steruje. 
+Może ci od Harrp. Kiedyś miałem kobietę Gwen podobna do Gwen to ją zabili bo skoniczył się termin jej bycia ze mną kzali iść na zmywak poweidzieli wygrana to kredyt zmywak albo po kobiecie. Teraz nie gram w lotto. Może to czarny. 
