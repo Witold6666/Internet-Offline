@@ -607,3 +607,4 @@ Nie chce żony bo sparta je daje i zabiera po 30 latach życia. A między czasie
 Co do moich kobiet te co miałem i mnie nie chciały urodziły się na nowo mężczyznami lub niepełnosprawne. Żadna mnie nie chce. Co do Voisa, Vois jest po to aby myślał za ludzi i dawałe z druku kwantowego rzeczy wszystko. 
 Jak mnie widzą dziewczyny na dyskotece zakładają pieścionki i wisiorki czy drogie ubrania że są już zajęte. 
 Wszystkie kobiety jakie miałem to mnie zostawiły zmieniły nazwiska i imiona lub popełniły samobójstwo i ktoś jakiś kret z 112 je ożywiał i zmieniał im dane. Zawsze mi robiły trudne sprawy i zmowę milczenia. 
+Ja tylko Voisa zrobiłem dla tych tępych mas. U mnie jest na dzielnicy jak na pustyni nikt tu się nie zbliża do mojej osoby. Coś nimi steruje. 
