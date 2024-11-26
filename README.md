@@ -615,3 +615,5 @@ Tu jest tylko Policja i nic nie można robić jest prawo Terminatorów TX i Kata
 Tu są na ziemi same procesory Kali Linux, Lee, Pod ścianę, Katarina Wawer, Kristiana TX, Kitty Pryd i inni i sport NGO i Pod ścianę za bycie cwaniakiem czy hakerem czy programistom.  
 Te policjanty to dzieci Chifa ta legia sparta bo on kradł jak żyd żony innym i maczał ptaka w kobiety i stworzył tą Policje na ziemi nie ma tu złodzieji tylko łobuzy i zakaz wędki radiowej czy drukarek kwantowcyh. Etatyzm i wojsko czy lotto kredyty i TV republika czy stacje radiowe anty radio same maszyny blaszani mordercy tu są. 0 Edenu tylko żydokracja i rządy tych pod ścianę 112.    
 Tu są rządy Leydi Elizabet i tęczowo im. 
+Tu są rządy goryli i maszyn. 
+Na innych światach są systemy cywilizacji złodzieji każdy może mieć wędkę radiową. 
