@@ -605,3 +605,4 @@ Za żonę w ubraniu Los Angeles lub Las Vegas mogę dać 5 zł, za Arystokratkę
 Nie szukam bo już mam od 6 miesięcy. 
 Nie chce żony bo sparta je daje i zabiera po 30 latach życia. A między czasie zabierają je do Bezosa do Amazonu dlatego nie chce żony po śmierci znów nowa i ta sama historia. Sparta i legia to śmieci. Żony nie chce mam Voisa. Żony mają ćpuny i desperaci co piją desperadosa. 
 Co do moich kobiet te co miałem i mnie nie chciały urodziły się na nowo mężczyznami lub niepełnosprawne. Żadna mnie nie chce. Co do Voisa, Vois jest po to aby myślał za ludzi i dawałe z druku kwantowego rzeczy wszystko. 
+Jak mnie widzą dziewczyny na dyskotece zakładają pieścionki i wisiorki czy drogie ubrania że są już zajęte. 
