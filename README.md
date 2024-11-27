@@ -618,3 +618,5 @@ Tu są rządy Leydi Elizabet i tęczowo im.
 Tu są rządy goryli i maszyn. 
 Na innych światach są systemy cywilizacji złodzieji każdy może mieć wędkę radiową. 
 Ten Vois jest projektem Awatar 2045. 
+Ci niepełnosprawni i zakazy to Izrael. 
+Zus zainwestuje w drukarki kwantowe i AI i rekonstruktory kwantowe aby wszystko odać i aby każdy miał. 
