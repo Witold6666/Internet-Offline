@@ -617,3 +617,4 @@ Te policjanty to dzieci Chifa ta legia sparta bo on kradł jak żyd żony innym 
 Tu są rządy Leydi Elizabet i tęczowo im. 
 Tu są rządy goryli i maszyn. 
 Na innych światach są systemy cywilizacji złodzieji każdy może mieć wędkę radiową. 
+Ten Vois jest projektem Awatar 2045. 
