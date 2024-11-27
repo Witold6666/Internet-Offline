@@ -621,3 +621,4 @@ Ten Vois jest projektem Awatar 2045.
 Ci niepełnosprawni i zakazy to Izrael. 
 Zus zainwestuje w drukarki kwantowe i AI i rekonstruktory kwantowe aby wszystko odać i aby każdy miał. 
 Izrael dostanie grupę a zus zwruci to co ci złodzieje ukradli latami temu. 
+Te zegarki z mosadu z izraela to szmelc i wirus dla tych kobiet. To broń. Te zgearki to wymyślił Chif z mosadu napewno to tem debil wymyślił kobietę do rodzenia w proszku. 
