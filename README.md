@@ -622,3 +622,4 @@ Ci niepełnosprawni i zakazy to Izrael.
 Zus zainwestuje w drukarki kwantowe i AI i rekonstruktory kwantowe aby wszystko odać i aby każdy miał. 
 Izrael dostanie grupę a zus zwruci to co ci złodzieje ukradli latami temu. 
 Te zegarki z mosadu z izraela to szmelc i wirus dla tych kobiet. To broń. Te zgearki to wymyślił Chif z mosadu napewno to tem debil wymyślił kobietę do rodzenia w proszku. 
+Co do głośników z żonami to drukowanie ich z AI i systemem i oprogramowaniem Radio Drukarką kwantową będzie tanie jak będzie wolna energia i autopilot do programowania głosnika. Wszystko stanieje nawet drukowanie przejściówek. Głośniki z żoną są drogie przez sport i partyzantkę robienie ich manualnie. Inna metoda produkcji głosników z żoną jest drogie i nie opłacalne jak radio drukarka kwantowa. 
