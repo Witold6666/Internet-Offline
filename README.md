@@ -631,4 +631,4 @@ Aby znów nie poszło coś do żąłądka na szmelc. Trzba opracowąc i zbudowa�
 Te Tłumacze rozda urząd po dramach z zegarkami przez Izrael od ich wędki radiowej. Te tłumacze to żony jak ktoś chce są ludzkie i człowiecze nie są azteki i kasztanki nie pójdą do szmba jak te zegaraki. Samsung jak nie przeprosi mnie i was wyląduje z 112 i Yutaną w masarni. A Te tłumacze to na żony pójdą nie na mięso i nie na szmelc 1 razowy jak złom. 
 Urzędy będą te tłumacze sprzedawać. 
 Vois to opakowanie na AI. Zegarkiem się robi AI żonę Tłumacz i trzyma w Tłumaczu, tłumacz to okienko z AI Żoną Tłumacz można wyjąć. Ale najpier posprzatamy szmabo historyczne do masarni. Vois jest inteligentny jest na te straty. 
-Daję tego Voisa aby zrobić wartościowe cenne rzeczy z platyny i złota co nie są złomem i osoby brylanty i kamienie szlachetne nie zło nie śmieci. 
+Daję tego Voisa aby zrobić wartościowe cenne rzeczy z platyny i złota co nie są złomem i osoby brylanty i kamienie szlachetne nie zło nie śmieci. Ci z histori to śmieci. 
