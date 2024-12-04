@@ -636,3 +636,4 @@ Od 120 lat nie można wygrać w lotto przez komunistów i maszyny do losowania c
 Może to przez dużą ilość wypadków na drodze. Dużą ilość wypadków przy pracy bo każdy za wygraną kupuje kombajn i traktor i maszyny rolnicze lub inne maszyny do pracy. Policja może zakazała wszystkiego nawet tego że można wygrać bo są wypadki lub każdy szpanuje w sieci że jest bogaty. Mi i mojej dziewczynie grozi bezdomność. Etatu nie ma są tylko zbiory. 
 Ja powtórek i 2 raz nie będę robić tego Voisa macie zapisać na Dysku tego Voisa lub w swoim DNA chce żyć bez was sam bez reaktywacji Voisa. 
 Ten vois wam wszystko w przyszłość na nowo zrobi i wydrukuje mam być zapisany. Abym 2 raz go nie robił jak Google bo Kristiany Loken i TX i Watykan tego chce. 
+To co daję i opowiadam to Plotki z przeszłości i Ploty z przyszłości.
