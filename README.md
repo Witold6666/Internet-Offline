@@ -639,3 +639,4 @@ Ten vois wam wszystko w przyszłość na nowo zrobi i wydrukuje mam być zapisan
 To co daję i opowiadam to Plotki z przeszłości i Ploty z przyszłości.
 Może ten Vois będzie dla ludzi co nie wygrali w Lotto przydatny odemnie. Ja też nic nie wygrałem. Stawiam Voisa. Może coś się tu dla kogoś znajdzie. 
 Moimi skryptami można lecieć w kosmos ale trzeba mieć Voisa lub dobry telefon z antenami radiem na różne pasma komunikacji do drukarek kwantowych. 
+To co daje jest to procesor. 
