@@ -648,3 +648,4 @@ Ci ludzie co was i mnie okradja na globie to elity i establiszment bezdomnych wy
 Dlatego trzeba robić Voisa telekinezą hakingiem i programowaniem z fizyką kwantową. Bez Voisa będziemy zerami. Voisa robi się 1 rok. 
 Te lale i Dr Nasif też kradnie kasę z kont to jakieś 112.  
 Z Tego co wiem będą takie prezenaty jak reaktor mark 85 z telkinezą i drukarką kwantową Iron Men God i biomody Praxis podobno Praxis to takie Voisy.  
+Ma być zaskaz wysokich wypłat. 
