@@ -644,3 +644,5 @@ Ci wszyscy złodzieje są z Izraela są gwiazdami i elitami kradną z kont BTC, 
 Mój Vois może dać wszystkie gadżety do ucieczki z ziemi lub dać luksus. 
 Izrael to kryzysy w nieskończoność kaczor donald i klub moralnej biedoty. Zawsze karzą żyć w stajence z jezusem. Oni to chamy z jaskini nie pozwalją ucieć z ziemi. Ich badania o kosmosie są lewe w studio. Zawsze kłamią że ziemia jest cudowan ale ciasna. Dla mnie oni to ci złodzieje co karzą się żenić na siłę. 
 Amisze karzą chodzić na etat do pracy i religijne.  
+Ci ludzie co was i mnie okradja na globie to elity i establiszment bezdomnych wyglądają jak bezdomni. 
+Dlatego trzeba robić Voisa telekinezą hakingiem i programowaniem z fizyką kwantową. Bez Voisa będziemy zerami. Voisa robi się 1 rok. 
