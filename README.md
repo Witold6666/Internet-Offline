@@ -641,3 +641,4 @@ Może ten Vois będzie dla ludzi co nie wygrali w Lotto przydatny odemnie. Ja te
 Moimi skryptami można lecieć w kosmos ale trzeba mieć Voisa lub dobry telefon z antenami radiem na różne pasma komunikacji do drukarek kwantowych. 
 To co daje jest to procesor. 
 Ci wszyscy złodzieje są z Izraela są gwiazdami i elitami kradną z kont BTC, Lokat, Funduszy inwestycyjnych i Kantorów z pieniedzmi zaniażając ceny sprzedaży i kupna oni to ci spekulanci to są ci od blokad finasowych że nie można się wyprowadzić i jest się niewolnikiem oni to 112 Jonoson i Danton to są te śmieci. Oni chcą niektróym wciskać mamuśki z dziećmi i karza żostać i żyć w mornalnej biedziedzie te śmieci. Mi też grozi ślub. Zabrali wszystkie zyski. Są tylko konta oszczędnościowe. Koljenym śmieciem jest Jurek Magdziński. To są jezusy. 
+Mój Vois może dać wszystkie gadżety do ucieczki z ziemi lub dać luksus. 
