@@ -678,3 +678,4 @@ To widać po fizyce kosmosu miesjacami 0.5% jest gaj druidów.
 To siciurity zabiera kobiety pewnym mężczyzną aby byli papierzami. 
 To Watykan popiera aby było dożo mężczyzn i żeby bogowie nie mieli kobiet czy kobiety i byli papierzami. W Kosmosie tego nie ma nie ma celibatu. Celibat jest tylko na ziemi.  
 Te kobiety w kórtkach płaszczach to zakonice. 
+Oni i te leki i lekarze i farmaceuci i harrp to zakonicy. Kobiety w płaszczach i kocach jak takie chodzą nie są z zakonu i nie są obojentne i nie są zakonice mamy i zakonice co awanturują się o alimenty jak zakonice. 
