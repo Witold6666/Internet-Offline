@@ -650,3 +650,4 @@ Te lale i Dr Nasif też kradnie kasę z kont to jakieś 112.
 Z Tego co wiem będą takie prezenaty jak reaktor mark 85 z telkinezą i drukarką kwantową Iron Men God i biomody Praxis podobno Praxis to takie Voisy.  
 Ma być zaskaz wysokich wypłat. 
 Oni są Lewi. Ma podobno do 2027 roku czy 2029 roku nie być rynku i sklepów tylko sklepy z ich prezeantami. 
+Jak ktoś chciał dużej kasy lub zrobku pensji czy wypłaty czy kasy z lotto kazali pracować po chłopsku cieżko bez jedzenia wykonywać Post wysiłek. Ci durnie to są ci ze stadionu. Oni nie są własiceilami kosmosów ja nim jestem tym włascilielem. To są złodzieje chłopi. Kazali czasami ludziom robić jakieś chałupnictwo za dużą kasę bez robotyki.  
