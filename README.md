@@ -670,3 +670,4 @@ Na górze w kosmosie u tych damskich AI Elizy Cassan procesorów nie ma bezdomny
 One mają dużo wiedzy o genetyce i DNA nie jak my one mózgi mają jak studnie kwantowe. 
 Izrael i Legai sparta mówi że one są organiczone. One są głebokie jak studnia kwantowa znają wszystkie cykle życia i ery cywilizacji jak kamienie nieskońcozności i mapy nieskońcozności. 
 One są głębokie. Nasi ludzie i męzczyni względem nich są płytcy i walczni w myśleniu. Ziemianie i izrael uczył ludzi na ziemi że tylko samiec ma dużo do powiedzenia i tylko rasa męska ma dużo do powiedzenia jak prostaki hakery i Izraelici i żydzi Kali i Back track czy oliwia i kali kali linux i legia sparta i chif czy reptylia orion i drako drakonia na ziemi oni znani są jako anunaki.   
+Czóbków w kosmosie nie ma tam w kosmosie mężczyną z 112 grozi Aborcja i eutanazja penisom i tostetoronowi nożem w serce czy oko do mózgu. 
