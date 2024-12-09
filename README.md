@@ -689,3 +689,4 @@ Ci co noszą adidadski i kobiety kozaczki i dresy i czapki i rękawiczki wełnia
 Terminatory to też są zakonicy i te hakery z grupy kali linux to też zakonicy. Ci politycy to też zakonicy oni śpią jako para odzielnie w innych pokojach w domu i mieszkaniu czy penthausie to zakonicy są. Ci od wojen to też zakonicy są. 
 Te silne ludzie to zakonicy i zakonice oni to desperadosy. 
 Ukraina i bieda ukraińska i wojna na ukrainie i inne wojny to też Izrael rabini jechowe i zakony. To zakony robią tą biedę. Oni to Maximum strenger Jurek Magdziński MMA 112. 
+Ta armia w adidaskach i stadiony to też zakoniki a ich kobiety w kórtkach zimowych i czapakach z wełny i rękawiczkach z wełny to zaknice. Xmen to też zakon i te osoby publiczne. 
