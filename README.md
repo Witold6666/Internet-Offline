@@ -673,3 +673,4 @@ One są głębokie. Nasi ludzie i męzczyni względem nich są płytcy i walczni
 Czóbków w kosmosie nie ma tam w kosmosie mężczyną z 112 grozi Aborcja i eutanazja penisom i tostetoronowi nożem w serce czy oko do mózgu. 
 Zabijają dzieci kobiety i mężczyzn z 112 nawet hakerów czy fizlozofów od badań że wojna jest potrzebna czy rolnictwo. Uzdrowiciele też mają w populacji same kobiety za głos wyborczy. 
 U tych kobiet bezdomni ci samscy bezdomni za afery pieluszki dada mają tam jak się urodzą eutanazję nożem w brzuch oko do mózgu lub serce i płuca i do plazmy oni ci bezdomni idą. Tam nie ma dzieci i tostesteronu kwiatów tylko same kobiety nie ma tam bezdomnych. Mają wysoką edukację zostawiają tylko inteligentnych samców. Nie ma tam jaskiniowców z wąsem nie też tam gangsta że 112 to procesor.
+Tam nie ma bezdomnych tych z ziemi co tu taj są w sejmie i senacie. Ziemia tu to wyjątek to gaj druidów i kler. 
