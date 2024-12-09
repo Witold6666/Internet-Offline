@@ -677,3 +677,4 @@ Tam nie ma bezdomnych tych z ziemi co tu taj są w sejmie i senacie. Ziemia tu t
 To widać po fizyce kosmosu miesjacami 0.5% jest gaj druidów. 
 To siciurity zabiera kobiety pewnym mężczyzną aby byli papierzami. 
 To Watykan popiera aby było dożo mężczyzn i żeby bogowie nie mieli kobiet czy kobiety i byli papierzami. W Kosmosie tego nie ma nie ma celibatu. Celibat jest tylko na ziemi.  
+Te kobiety w kórtkach płaszczach to zakonice. 
