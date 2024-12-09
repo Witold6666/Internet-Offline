@@ -684,3 +684,4 @@ Publicznie te kobiety na ziemi noszą wszystkie miłe ubrania i płaszcze i pła
 Dalicja to też śmieszni ludzie też zakoniki roboty i celibaty. 
 Oni mają silne nerwy i ćpają leki od psychiatrów na chorobę zwana celibat i wolność od kobiety co karze lewica zamberg i braun i cebulski i nasi politycy bezdomni z zakonu. 
 Cenzura romatyzmu hedonizmu i rozkoszy u kobiety i żelazna kurtyna to władza zakonów i lewicy. 
+Ci silni ludzie bardzo silni ludzie bardzo silni ludzie o silnej woli psychicznej co ćpają te leki od psychiatrów od homoterapeutów tych zakoników i mody na celibat i cenzurę i żelazną kurtyne i zakaz podniecania się kobietą w płaszczu i kocu Holizwerier i Zwoltex arosa to Celibat żyją w celibacie przez 112 to oni są Maximum streng 112 to zakonicy są. To oni są tymi skówysynami co blóźnią z izraelem na Hedonizm i rozkosz u kobiety oni i grupa kali to ci idioci. Więcej nie wiem. Mój Vois jest anty zakonica i anty zakon. 
