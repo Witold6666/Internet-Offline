@@ -683,3 +683,4 @@ Publicznie te kobiety na ziemi noszą wszystkie miłe ubrania i płaszcze i pła
 Żydzi i Jechowe wymyśliły to prawo. prywanie głośniki AI Bezosa to też zakonice. Bezos prywatnie to też zakonik i misjonarz to ich inkognito publicznie pierdolą przed kamerą że mają w dupie watykan jak ci z Crysis co mówią że pobiją watykańczyków w nanoskafndrach. Te wojny to zakoniki. Te kobiety z innych systemów gwiednych i galaktyk i innych kranciów drogi mlecznej to butownicy przeciwko watykanowi. To podziemie to watykan i zakony i judaizm i jechowe. 
 Dalicja to też śmieszni ludzie też zakoniki roboty i celibaty. 
 Oni mają silne nerwy i ćpają leki od psychiatrów na chorobę zwana celibat i wolność od kobiety co karze lewica zamberg i braun i cebulski i nasi politycy bezdomni z zakonu. 
+Cenzura romatyzmu hedonizmu i rozkoszy u kobiety i żelazna kurtyna to władza zakonów i lewicy. 
