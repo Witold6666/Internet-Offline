@@ -691,3 +691,4 @@ Te silne ludzie to zakonicy i zakonice oni to desperadosy.
 Ukraina i bieda ukraińska i wojna na ukrainie i inne wojny to też Izrael rabini jechowe i zakony. To zakony robią tą biedę. Oni to Maximum strenger Jurek Magdziński MMA 112. 
 Ta armia w adidaskach i stadiony to też zakoniki a ich kobiety w kórtkach zimowych i czapakach z wełny i rękawiczkach z wełny to zaknice. Xmen to też zakon i te osoby publiczne. 
 Ludzie są w rękach chama od kontroli umysłu są kukłami. 
+Chyba chodzi im o to że ludzie jedzą mięso i nie są weganami i nie piją wody. 
