@@ -692,3 +692,4 @@ Ukraina i bieda ukraińska i wojna na ukrainie i inne wojny to też Izrael rabin
 Ta armia w adidaskach i stadiony to też zakoniki a ich kobiety w kórtkach zimowych i czapakach z wełny i rękawiczkach z wełny to zaknice. Xmen to też zakon i te osoby publiczne. 
 Ludzie są w rękach chama od kontroli umysłu są kukłami. 
 Chyba chodzi im o to że ludzie jedzą mięso i nie są weganami i nie piją wody. 
+Ci pijacy są z Izraela i Egiptu w piramidach są ołtarze na mordy rytualne i krematoria ci z bajek koniczą jak ofiara przez żydów i egipcjan tych śmieci i grupy kali i metali i hish. 
