@@ -694,3 +694,4 @@ Ludzie są w rękach chama od kontroli umysłu są kukłami.
 Chyba chodzi im o to że ludzie jedzą mięso i nie są weganami i nie piją wody. 
 Ci pijacy są z Izraela i Egiptu w piramidach są ołtarze na mordy rytualne i krematoria ci z bajek koniczą jak ofiara przez żydów i egipcjan tych śmieci i grupy kali i metali i hish. 
 Terminal net i skynet je mięso z tych kobiet z bajek oni to chyba iluminaci. 
+Ashoka Tano i Star Trek je te bajki na obiad. Izrael nauczył ich tego chamstwa z egiptem. 
