@@ -697,3 +697,4 @@ Terminal net i skynet je mięso z tych kobiet z bajek oni to chyba iluminaci.
 Ashoka Tano i Star Trek je te bajki na obiad. Izrael nauczył ich tego chamstwa z egiptem. 
 Ten Buc to Izrael i egipt oni zabijają autorów tych bajek. Oni to 112 bajki o proroku machomecie z bródką. 
 Te głupie bajki o proroku z bródką w szopie to Izrael a bajka o królu rybaku to Egipt. Oni zapomnieli o futuryźmie z egiptu znów sa prościci. Jezusy ich uprościły. 
+Gwen Tennyson chodzi o asystenta głosowego vois z drukarkami kwnatowymi na radio radio drukarkami kwantowymi z AI. Co do żydów oni są niepełnsoprawni Izrael i Egipt ich bieda i biedna chaunka czyli prezenty od stolarza. To wężowe plemie jej nie lubi. Ja ją cenie jako Pan Bóg. 
