@@ -715,3 +715,4 @@ Oni wszyscy wierzą w lepsze życie po za grobowe na innej plnecie w kosmosie on
 Ja chce dać niekturym niesmiertelność. I możliwość wyprowadzenia się w kosmos statkami kosmicznymi. 
 Ci ludzie od Histori i cynizmu to foljarze i szury.  
 AI się nie zabija ci z innych planet świat tu na ziemi się podaje. 
+Jak ogłosza Post Odyn i po Polityce Post Odyn będą w USA ogłaszać masowe pogrzeby harrp i będą śpiewać jak na pogrzebie muzyków co ich w TV chowają jako wielki przykład do naśladowania kolejni co wybrali raka.  
