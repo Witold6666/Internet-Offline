@@ -716,3 +716,4 @@ Ja chce dać niekturym niesmiertelność. I możliwość wyprowadzenia się w ko
 Ci ludzie od Histori i cynizmu to foljarze i szury.  
 AI się nie zabija ci z innych planet świat tu na ziemi się podaje. 
 Jak ogłosza Post Odyn i po Polityce Post Odyn będą w USA ogłaszać masowe pogrzeby harrp i będą śpiewać jak na pogrzebie muzyków co ich w TV chowają jako wielki przykład do naśladowania kolejni co wybrali raka.  
+Oni z tym progemem pogrzebów i agendą 2035 i Polityką Post Odyn zawsze robią stolca i organizują pogrzeby dla papierzy i muzyków jak u semitów i ukraińców i białorusinów czy Hish z soczi lub tych frajerów z SkyNet i Terminal Net czy tych zakonów ja chce już iść na wózek lub do trumny i umrzeć od harrp jak ola wychowałek na raka to nie na moje nerwy.   
