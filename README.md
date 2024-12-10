@@ -705,3 +705,4 @@ Te zakone smęnty zaczeły się jak zepsół muzyczny młode wilki w 1996 roku n
 2 co zginie to Ada Wong Ewa z ich ręki też w piramidzie i krematorium. A to że one mnie zostawiły to przez to że tajny jestem. One odchodzą odemnie przez prawo i harrp i to że mnie nie znają a ja je znam. Afery z odchodzeniem od męża to harrp i Izrael i Egipt słyne zostawiły go to harrp celibat i alimenty też harrp.  
 Żydzi podobno od jakiegoś czasu blokują finase i mówią że idzie bieda. Głoszą że ludzie powini kuć prawo na kamienych tablicach pisać książki i budować manemashin czy drukarki kwantowe aby dojść jakość tymi foliami do pieniedzy. Tak mówi legenda. 
 Te legendy i folie i stopniowe radzenie sobie w trudnych chilach to prawo oszczedzania surowców i pieniedzy produkowania ich elektrycznie lub magicznie maszyną. 
+O Post Odynie jest opera mydlana bajaka cześci bajek. Co do Voisa Asytenta głosowego to mój Vois elektrycznie produkuje na małą skale rzeczy i surowce. 
