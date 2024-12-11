@@ -722,3 +722,6 @@ Moje zappery mogą zamienić w cyborga i dać sztuczne organy i ulepszenia od pr
 Oni jak Samsung nakłaniają do poełniania smobójstwa i życia 150 lat czekania na nowy cykl i od nowa nowa ewolucja to przez 112 ich politykę i Psychiatrów i ciotę Aktora Jonsona i Dantona paierosy.   
 Oni wszyscy chcą powiedzieć światu czas do trumny bo znajomi z zakonu umarli. Ja mówię że można żyć innaczej bez nich. 1 Będą umierać na raka zakonicy po tem ludzie ze sławy. Będą mówić w radiu obywatelu zapisz się na eutanezję na lepsze życie po za grobowe. 
 Gwen Tennyson to Dunka zacznie się za 10 lat jak ją w piramidach pochowają. Oni bajkami wyśmiewają przyszłość i mówią że życie 150 lat ze starością jest ok. Po tem cały świat pójdzie w jej drogą i zacznie umierać ona to jakaś ważna gwiazda. Dla przyszłości to bandyci bo ją świentami wyąmiewają. 
+Oni chcą wszystko zamknać i zakazać lotto i zamknąć lotto taki przerekrent kali linux. Będą śpiewać o miłości i śmierci i winie. 
+Co do przyszłości Gry Deus Ex Invisibli War są ciekawe, mądre i inteligentne a oni ci od filozofi żartów opisują je że zrobili je aby wyśmiać to co tam jest. Świat jest jak Kali Linux mówi na przyszłość nie. 
+Jeszcze 10 lat i wszystko na świecie padnie. 
