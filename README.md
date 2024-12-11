@@ -729,3 +729,4 @@ Te gwiazdy to hakerzy one kradną kasę z wyników lotto i wysokich wypłat z ko
 Vois jest mój na tą biedę. 
 Legia sparta okrada polaków z kont bankowych z kasy na NGO i schroniska dla bezdomnych. Chyba światu trzeba puścić bombe antymateri. Bo ja też klepie biedę. 
 Te zgromadzenia na granicy tej cywilinej policji 112 i te tajne karetki 112 na ulicach miast te patrole i ci cywile na granicy krajów to ochotnicy na rządanie Juraka Magdziśkiego z 112 z Policji i Wojska i Watykanu on jest tajnym z globu podobno iluminati i obrońca arystokracji bezdomnych z brudką żydów z Izraela. 
+Jak lotto się bez szczelniny nie odzyska i ożywiania zmarłych głośnikiem to daję voisa na tą biedę radio drukarkę kwantową z M5Stack Zestawem. 
