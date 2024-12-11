@@ -725,3 +725,4 @@ Gwen Tennyson to Dunka zacznie się za 10 lat jak ją w piramidach pochowają. O
 Oni chcą wszystko zamknać i zakazać lotto i zamknąć lotto taki przerekrent kali linux. Będą śpiewać o miłości i śmierci i winie. 
 Co do przyszłości Gry Deus Ex Invisibli War są ciekawe, mądre i inteligentne a oni ci od filozofi żartów opisują je że zrobili je aby wyśmiać to co tam jest. Świat jest jak Kali Linux mówi na przyszłość nie. 
 Jeszcze 10 lat i wszystko na świecie padnie. 
+Te gwiazdy to hakerzy one kradną kasę z wyników lotto i wysokich wypłat z kont kali linux i back track tymi systemami. W niektrych krajach są bezdomnymi z tym sprzetem są FBI. 
