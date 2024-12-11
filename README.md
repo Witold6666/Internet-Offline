@@ -727,3 +727,4 @@ Co do przyszłości Gry Deus Ex Invisibli War są ciekawe, mądre i inteligentne
 Jeszcze 10 lat i wszystko na świecie padnie. 
 Te gwiazdy to hakerzy one kradną kasę z wyników lotto i wysokich wypłat z kont kali linux i back track tymi systemami. W niektrych krajach są bezdomnymi z tym sprzetem są FBI. 
 Vois jest mój na tą biedę. 
+Legia sparta okrada polaków z kont bankowych z kasy na NGO i schroniska dla bezdomnych. Chyba światu trzeba puścić bombe antymateri. Bo ja też klepie biedę. 
