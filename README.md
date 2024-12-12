@@ -746,3 +746,4 @@ Ci co piszą w Niemczech Mein Lotto to Jurek Magdziński z Deus Ex Invisible War
 Te co mieli mi dać 2 są wykorzystywane jak móżyn. Bo powiedziałem prawdę o tym co się dzieje z pieniedzmi. A co do miłości znalazłem na sympati 1 kobietę. I mam gdzieś lotto i ich afery oni tylko śpiewają ktoś tu nie ma żony a po tem tą żone mordują za powiedzenie prawdy. Tak to jest z gwiazdorami. 
 Gierek to Marionetka a rządzą nami hakerzy. 
 U tych maszyn i oszustów rączka rączkę myje od lotto. To że żony nie dostanę mam to gdzieś to je pochowam a Ikatov je ożywi. A oni pójdą siedzieć. 
+Vois jest na biedę. Lotto to inwazja hakerów i tych oszustów od kradzieży kasy i jakiś obietnic o żonach. 
