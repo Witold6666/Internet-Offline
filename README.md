@@ -741,3 +741,4 @@ Będzie tylko mój Vois hakerski z internetem rzeczy.
 Ci hakerzy złodzieje i post złodzieje post mafia alle mafia zażywa i bierze narkotyki. Oni to cały świat Jezusów. Vois daję uczciwym ludziom co stracili wygranę w lotto przez tych nieuczciwych ludzi hakerów. 
 Słyszałem też plotkę że lekarze prywatni też kradną, Sklepikarze i sklepy i wszyscy Politycy robią sobie przelewy systeami dla hakerów. Ale nadal są elektroniczne pokrycia w gotówce i złocie przyjeżdzają do banków konwoje więc ciężko coś ukraść z banku czy dodrukować. Niektóre kraje nie akceptują płatności kartą czy telefonem lub BTC. Za granicą kradną. Mój Vois jest na tą biedę.  
 Ci z opisu to też robili wszystkie wojny z całej histori i epidemie czy klęski żywiołowe pod NGO WOŚP.  
+Oni brylują w mediach. Te laski hakery wkupują się w akta kobiet mody za ukradzione pieniądze. I gwiazdożą za nasze majątki w TV. 
