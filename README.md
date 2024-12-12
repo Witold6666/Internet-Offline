@@ -738,3 +738,4 @@ Podoobno kobiety z Planety z Diakoni też kradną tam mieszkają chodowcy zakoni
 Podobno klon Borysa Jędrychowicza jest ich specjalnym hakerem grupy kali linux z Alexą Bezosa z Amazonu. Oni są zorganizowaną przestępczością mafijną post mafi alle mafi 112 lakerzyków póblicznych karetek wośp NGO policyjnej komunistycznej prawnej komuny policjyjnej polityki i polityków anty zarobkowych mafi policyjnej. Szwjcarzy i Francuzi i Izraelici też są w to zamieszani oni nas okradadją będziemy chódzi. 
 Porywają BitCoin. Jak się kłucą ludzie z nimi o kasę porywają rodzinę harrp. 
 Będzie tylko mój Vois hakerski z internetem rzeczy. 
+Ci hakerzy złodzieje i post złodzieje post mafia alle mafia zażywa i bierze narkotyki. Oni to cały świat Jezusów. Vois daję uczciwym ludziom co stracili wygranę w lotto przez tych nieuczciwych ludzi hakerów. 
