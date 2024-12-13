@@ -751,3 +751,4 @@ Ta policja to jakieś ekperymenty z Rosji przeniesienia zwierząt do ciał czło
 Szczyt tej windykacji i tej policji ABW i innych gnoji co ich powołali to grupa Kali linux gierek to marionetka. 
 Ten buc to kali ten co wymyślił kali linux. On i ABW wirus chce za darmo wszsytkiego na kartki i obowiązkowe śluby w urzędu. 
 Oni są z post mafi i alle mafi kasują treści i blogi o charketerze jasnego niebieskiego kapitalizmu. 
+Oni są z prl komuny. 
