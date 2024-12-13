@@ -752,3 +752,4 @@ Szczyt tej windykacji i tej policji ABW i innych gnoji co ich powołali to grupa
 Ten buc to kali ten co wymyślił kali linux. On i ABW wirus chce za darmo wszsytkiego na kartki i obowiązkowe śluby w urzędu. 
 Oni są z post mafi i alle mafi kasują treści i blogi o charketerze jasnego niebieskiego kapitalizmu. 
 Oni są z prl komuny. 
+Na kartki i za darmo trzeba mieć Vois radio drukarkę kwantową aby wszystko w dużej ilości było bez pokrycia w surowcach naturalanych na energię elektryczną. 
