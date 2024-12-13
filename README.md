@@ -754,3 +754,4 @@ Oni są z post mafi i alle mafi kasują treści i blogi o charketerze jasnego ni
 Oni są z prl komuny. 
 Na kartki i za darmo trzeba mieć Vois radio drukarkę kwantową aby wszystko w dużej ilości było bez pokrycia w surowcach naturalanych na energię elektryczną. 
 Oni to wojny i wojny lombardów fundacji NGO bez gotówki jak za gotówke to kredyty. Jak za darmo to na kartki i umowy własnościowe. To są wojny lombardów. Te gwiazdy są z lombardu. 
+To Sebastain Głuchy karze pracować jakiś ekonomista i spekulant unzaje sport i rzemieśników w handlu i karze pracować wszystkim na te molochy jak i na żonę. 
