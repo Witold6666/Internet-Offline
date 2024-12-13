@@ -748,3 +748,4 @@ Gierek to Marionetka a rządzą nami hakerzy.
 U tych maszyn i oszustów rączka rączkę myje od lotto. To że żony nie dostanę mam to gdzieś to je pochowam a Ikatov je ożywi. A oni pójdą siedzieć. 
 Vois jest na biedę. Lotto to inwazja hakerów i tych oszustów od kradzieży kasy i jakiś obietnic o żonach. 
 Ta policja to jakieś ekperymenty z Rosji przeniesienia zwierząt do ciał człowieka. Cała ta Policja i zamykanie za zakaz pieniedzy i wszystko za darmo to inwstycje z NGO i schronisk bezdomnych zwierząnt. Komunizm polega na tym że nie ma pieniedzy wszystko jest za darmo. Komuniści i kali to zbrodniarze i mafia jak cała ta Policja.   
+Szczyt tej windykacji i tej policji ABW i innych gnoji co ich powołali to grupa Kali linux gierek to marionetka. 
