@@ -750,3 +750,4 @@ Vois jest na biedę. Lotto to inwazja hakerów i tych oszustów od kradzieży ka
 Ta policja to jakieś ekperymenty z Rosji przeniesienia zwierząt do ciał człowieka. Cała ta Policja i zamykanie za zakaz pieniedzy i wszystko za darmo to inwstycje z NGO i schronisk bezdomnych zwierząnt. Komunizm polega na tym że nie ma pieniedzy wszystko jest za darmo. Komuniści i kali to zbrodniarze i mafia jak cała ta Policja.   
 Szczyt tej windykacji i tej policji ABW i innych gnoji co ich powołali to grupa Kali linux gierek to marionetka. 
 Ten buc to kali ten co wymyślił kali linux. On i ABW wirus chce za darmo wszsytkiego na kartki i obowiązkowe śluby w urzędu. 
+Oni są z post mafi i alle mafi kasują treści i blogi o charketerze jasnego niebieskiego kapitalizmu. 
