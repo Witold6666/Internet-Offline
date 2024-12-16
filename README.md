@@ -770,3 +770,4 @@ Ci niepełnosprawni od postwysiłku i pefron i NGO i lotto, pracy, rent zus lek�
 Ci blaszani mordercy z westernów to konie. 
 Te co nie noszą płaszczy i kocy zwoltex arosa i tych ubrań jak swtry i polary i bluzy miś i kocy szaly na szyji to konie są. Ci nie uczciwi to konie w szateksie z markowych marek. 
 500+ 900+ alimenty rostania i afery w sądach i harrp to konie to robią cała ta 112 to konie i te leki to też konie te leki dają siłę do pracy to konie są. 
+To konie w Polsce i WESOŁOWSKA I JUDI I KUBUŚ, 112, Magazyny, Sport, przmysł sportowy, te sklepy, Carton Network, Jetix i Bajki będą bedomnymi razem z Alexą Cheng i jej ojcem dziadem księdzem zakonikiem 112 Policjantem i wojskowym będą bezdomni i amisze też będą w Polsce Bedzomni z TX Kristiana i Kristianami za zabójstwo Conora i robienie mu prania mzugu aby był koniem. 
