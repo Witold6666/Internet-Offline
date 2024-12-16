@@ -769,3 +769,4 @@ To konie z westernów są z przeszłości i karzą ciężko pracować i mieć ba
 Ci niepełnosprawni od postwysiłku i pefron i NGO i lotto, pracy, rent zus leków i narkotyków i westernu i salonów i mocy prezentów to są Konie, Kuce, Kucyki i Jednorożce. Oni to te zkaazy dla hakerów. Oni mają głowę jak wampiry do skarbówki i wychwytywania fałszerstw pieniedzy i teksty przestań lub teksty a nie mówiłam dziewcyzny, dziewczyny kunie góra.
 Ci blaszani mordercy z westernów to konie. 
 Te co nie noszą płaszczy i kocy zwoltex arosa i tych ubrań jak swtry i polary i bluzy miś i kocy szaly na szyji to konie są. Ci nie uczciwi to konie w szateksie z markowych marek. 
+500+ 900+ alimenty rostania i afery w sądach i harrp to konie to robią cała ta 112 to konie i te leki to też konie te leki dają siłę do pracy to konie są. 
