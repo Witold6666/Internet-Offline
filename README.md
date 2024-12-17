@@ -773,3 +773,4 @@ Te co nie noszą płaszczy i kocy zwoltex arosa i tych ubrań jak swtry i polary
 To konie w Polsce i WESOŁOWSKA I JUDI I KUBUŚ, 112, Magazyny, Sport, przmysł sportowy, te sklepy, Carton Network, Jetix i Bajki będą bedomnymi razem z Alexą Cheng i jej ojcem dziadem księdzem zakonikiem 112 Policjantem i wojskowym będą bezdomni i amisze też będą w Polsce Bedzomni z TX Kristiana i Kristianami za zabójstwo Conora i robienie mu prania mzugu aby był koniem. 
 W Metropoliach i ciansych pomieszczniach i kaminicach i blokach mieszkają konie i ci żebracy psy i koty. Ludzie mieszkają w dużych pomieszczeniach. 
 Cała ta populacja zwierząt to bezdomni razem z noe z Izraela.   
+To DNA okresu półtrwania ci bezdomni z rozkładu naturalnego kwiaty pochodzą od jakieś bezdomnej kobiety cała ta populacja bezdomnych i foljarzy ci na świecie co są nawet hakerzy.
