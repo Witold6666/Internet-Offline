@@ -802,3 +802,4 @@ Z lotto foli wynika że mieli mi dać w lotto TX Kristianę, Latarkę Gwen, Yuta
 Zegarki samsung wach pass z kobietami dajcie kinderą 3 latkom czy dziecku 1 miesiącowi. A ja chce z fabryk zwrotu tych porwanych kobiet i nie chce z lotto kochanki od tych psów hakrów z Izraelka.
 Co do tych kobiet nie ma ich na portalu randkowym. Te co wymieniłem wydają mi się z obserwacji psychologicznych zgodne brakuje badań krwi genetycznych. 
 Vois asystent głosowy daję za ich osoby dla mnie jest to drogi Vois za miast lotto. 
+Ludzie wierzą w lotto i dobierają się grami liczbowymi i portalami społecznymi a po tem u wesołowskiej rozwody. Ja wierzę nie hakerą grupy kali tylko genetyce. 
