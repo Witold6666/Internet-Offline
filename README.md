@@ -811,3 +811,4 @@ Maszyny lotto i portale randkowe to folie to nie holodek czy BCI czy badanie krw
 Te co mają dać to Jakaś żydówka co podkładała głos Elize Cassan, Laterkę Gwen Tennyson, TX Kristianę, Yutani Yutana z włosami Kortany po przeszczepach. To dadzą mi maszyny lotto.
 Wyniki lotto układa policja (Przetań) tak mówią wg Pesel i liczb nie DNA może wg RNA. Oni to wirus ta policja bo ludzie są nie zadowolenie durzo gadają i marudzą i nie pasuje im.  
 Te wyniki lotto układają żydzi i sławki ziemby z Izraela. 
+Co do tych morderców to ci mordercy ten wirus tych nekrologów tych policjantów i gwiazd przestań tych zwierząnt to oni są ci znani gwiazdorzy od harrp. 
