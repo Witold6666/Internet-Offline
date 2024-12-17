@@ -779,3 +779,4 @@ Adam był frajir frajerem był Adam bo grał w karty z żydem o jabłko. A że p
 Te lale co znam też radio Harrp tych od przestań robi za warszawianke kórwę do ciaży i okresów. Radio mieli już żydzi dawano temu tego harrpa. 
 Ewa Ada Wong rodziła żydom ludzi jak szamba i tych z legi sparty też urodziła jak szamba całego globu i tych sławków ziembów też. 1 Dziecko Ewy Eliza Cassan urodziła się w Pradze, 2 Dziecko Ewy urodziło się w chorwacji Kortana Halo 5, 3 Dziecko Ewy Ola Wychowałek urodziła się w Polsce. Wyszły jej dzieci z innych ludzi w innych rodzinach jak szambo. Ewa Ada Wong nie zasłużyła na taki los jak zrobli żydzi z łodzi Noe. Te szmaty to ci obecni ludzie z ich DNA żydów na calym globie tylko żydzi. Żydo niemcy też. 
 To niepełnosprawny dymał Ewę i stworzył to całe 112 i tych hakerów tych śmieci. 
+Ten syf był w DNA żyda co dymał Ewę. 
