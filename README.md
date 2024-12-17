@@ -810,3 +810,4 @@ Z badań Voisem w Holodeku wynika że brzydka kobieta zrobi mi awantury jak nie 
 Maszyny lotto i portale randkowe to folie to nie holodek czy BCI czy badanie krwi. 
 Te co mają dać to Jakaś żydówka co podkładała głos Elize Cassan, Laterkę Gwen Tennyson, TX Kristianę, Yutani Yutana z włosami Kortany po przeszczepach. To dadzą mi maszyny lotto.
 Wyniki lotto układa policja (Przetań) tak mówią wg Pesel i liczb nie DNA może wg RNA. Oni to wirus ta policja bo ludzie są nie zadowolenie durzo gadają i marudzą i nie pasuje im.  
+Te wyniki lotto układają żydzi i sławki ziemby z Izraela. 
