@@ -787,3 +787,4 @@ Ten Bezdomny z pefron i ten Talon na balon na Ewę i rodziła cały glob to żyd
 Ewa urodziła tych śmierdzieli CCCP z DNA żydów.  
 Ewe Adę Wong żyd dziabnoł strzykawką z wirusem i ona rodziła ten syf zwany ludzie do pracy cała populacja tak na innych planetach też mogły tak skoniczyć piękne kobiety czarownice czy inne piękne kobiety jak Ewa czy Marcelina Lilith. Ci znani gwiazdorzy mają RNA są wirusem. 
 Izrael Te miss zmusza do rozmnarzania się jako E mamy i po tem z nich robi kiełbasę. Nie ma pieknych kobiet na ziemi same brzydkie są. Te śmieci są z izraela. 
+Te 6 córek Kristiany i Gwen, Sanny, Kari to córki bliźniaczki anty przeciwieństwa, są bezdomnego. A te 4 kobiety są z dobrego domu. Mase tych kobiet to bezdomni. I ci co jeżdzą po świecie do tych gniazd metropoli to miejscówki bezdomnych od EWY z gwłatów żydów tych Miss. 
