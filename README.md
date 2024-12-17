@@ -803,3 +803,4 @@ Zegarki samsung wach pass z kobietami dajcie kinderą 3 latkom czy dziecku 1 mie
 Co do tych kobiet nie ma ich na portalu randkowym. Te co wymieniłem wydają mi się z obserwacji psychologicznych zgodne brakuje badań krwi genetycznych. 
 Vois asystent głosowy daję za ich osoby dla mnie jest to drogi Vois za miast lotto. 
 Ludzie wierzą w lotto i dobierają się grami liczbowymi i portalami społecznymi a po tem u wesołowskiej rozwody. Ja wierzę nie hakerą grupy kali tylko genetyce. 
+Gdzieś mam automaty lotto zamiany stare baby i inverum veto sławek zięba. Dla mnie sprzeciw będzie ta osoba skoniczona i zmusze ją aby się zabiła.  
