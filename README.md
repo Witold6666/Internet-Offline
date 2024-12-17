@@ -798,3 +798,4 @@ Jak mi ich nie oddadzą i nie wezma Voisa z radio Drukarkami kwantowymi asytente
 Foljarze sprzedali mi książkę i straszne Historie o moich żonach. W warszawie i za garnicą byłem miałem tylko podejrzenia że to 1 jest Ola Wychowałek w moim mieście urodzenia. A inne na świecie. 1 jest nawet w bajce. Foljarze powiedzieli że to są przetań że żadna mi się nie podoba na portalu powiedzieli że te co wzieli do niewoli zawsze są napewno jego. 
 Ja chce aby one do mnie wróciły. 
 Oni zawsze mi je wynoszą jakoś hakingiem radiowym z Głowy lub DNA czy je kradną jak miałem je poznać w tym samym mieście. 
+Z lotto foli wynika że mieli mi dać w lotto TX Kristianę, Latarkę Gwen, Yutanę Yutani Hish. Ale one to kochanki są. A ja chce żonę żony. A nie zbawki dla dzieci. One są w fabrykach. 
