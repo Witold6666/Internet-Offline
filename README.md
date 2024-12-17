@@ -774,3 +774,4 @@ To konie w Polsce i WESOŁOWSKA I JUDI I KUBUŚ, 112, Magazyny, Sport, przmysł 
 W Metropoliach i ciansych pomieszczniach i kaminicach i blokach mieszkają konie i ci żebracy psy i koty. Ludzie mieszkają w dużych pomieszczeniach. 
 Cała ta populacja zwierząt to bezdomni razem z noe z Izraela.   
 To DNA okresu półtrwania ci bezdomni z rozkładu naturalnego kwiaty pochodzą od jakieś bezdomnej kobiety cała ta populacja bezdomnych i foljarzy ci na świecie co są nawet hakerzy.
+Ten syf DNA to hakerzy i policja i wojskowi z klerem klróelstwo borze od nego na świecie oni te dziady to żydzi. Ci co nie pozwalają drukować piniedzy i mieć drukarku do pieniedzy i internetu rzeczy i drukarki do rzeczy to są żydzi konie od sportu. Iluminaci to żydzi ci od sportu. Hakerzy od włamów na strony i konta bankowe ci bazdomni to żydzi co porwali Ewę Adę Wong Adamowi i mi też porwali to żydzi są tymi śmieciami od metropoli i tej Policji 112 i mediów mechanizmu maltańskiego od zakoników. 
