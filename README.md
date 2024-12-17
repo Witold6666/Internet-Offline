@@ -805,3 +805,4 @@ Vois asystent głosowy daję za ich osoby dla mnie jest to drogi Vois za miast l
 Ludzie wierzą w lotto i dobierają się grami liczbowymi i portalami społecznymi a po tem u wesołowskiej rozwody. Ja wierzę nie hakerą grupy kali tylko genetyce. 
 Gdzieś mam automaty lotto zamiany stare baby i inverum veto sławek zięba. Dla mnie sprzeciw będzie ta osoba skoniczona i zmusze ją aby się zabiła.  
 Te portale randkowe i maszyny lotto, wymiana genetyczna nie przeznaczenie i miłość sens życia. Gdzieś mają zakochanych tylko do firmy i pracy. 
+Maszyny lotto i te dobory partnerów na życie i wymiany genetyczne to wirus jest nie ma miłości i zakochanych wiecznie. Czegoś brakuje. 
