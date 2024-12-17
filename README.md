@@ -786,3 +786,4 @@ Ewę zarził Bezdomny.
 Ten Bezdomny z pefron i ten Talon na balon na Ewę i rodziła cały glob to żyd. 
 Ewa urodziła tych śmierdzieli CCCP z DNA żydów.  
 Ewe Adę Wong żyd dziabnoł strzykawką z wirusem i ona rodziła ten syf zwany ludzie do pracy cała populacja tak na innych planetach też mogły tak skoniczyć piękne kobiety czarownice czy inne piękne kobiety jak Ewa czy Marcelina Lilith. Ci znani gwiazdorzy mają RNA są wirusem. 
+Izrael Te miss zmusza do rozmnarzania się jako E mamy i po tem z nich robi kiełbasę. Nie ma pieknych kobiet na ziemi same brzydkie są. 
