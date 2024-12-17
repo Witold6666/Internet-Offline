@@ -812,3 +812,4 @@ Te co mają dać to Jakaś żydówka co podkładała głos Elize Cassan, Laterk�
 Wyniki lotto układa policja (Przetań) tak mówią wg Pesel i liczb nie DNA może wg RNA. Oni to wirus ta policja bo ludzie są nie zadowolenie durzo gadają i marudzą i nie pasuje im.  
 Te wyniki lotto układają żydzi i sławki ziemby z Izraela. 
 Co do tych morderców to ci mordercy ten wirus tych nekrologów tych policjantów i gwiazd przestań tych zwierząnt to oni są ci znani gwiazdorzy od harrp. 
+Ludzie z wyborów portali randkowych ukrytej prawdy przestań tych aferzystów i losowań lottto w ślubach nie są szczęśliwi jak z efektów wypałt BitCoin.
