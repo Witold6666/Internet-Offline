@@ -782,3 +782,4 @@ To niepełnosprawny dymał Ewę i stworzył to całe 112 i tych hakerów tych ś
 Ten syf był w DNA żyda co dymał Ewę. 
 4 Dziecko Ewy to Alishia Aisha. A ten buc co za to odpowiada to żyd zid. 
 Ewe dymał Pefron i tych z Carton Network Ben 10 też będzie dynał Pefron czy Kitty Pryd też Pefron, TX pochodzi od ciąży z Pefron. Żydzi i ci od ogrywania w karty to Pefron. 
+Ewę zarził Bezdomny. 
