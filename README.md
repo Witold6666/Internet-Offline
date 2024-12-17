@@ -814,3 +814,5 @@ Te wyniki lotto układają żydzi i sławki ziemby z Izraela.
 Co do tych morderców to ci mordercy ten wirus tych nekrologów tych policjantów i gwiazd przestań tych zwierząnt to oni są ci znani gwiazdorzy od harrp. 
 Ludzie z wyborów portali randkowych ukrytej prawdy przestań tych aferzystów i losowań lottto w ślubach nie są szczęśliwi jak z efektów wypałt BitCoin.
 Te co miałem mieć poszły do fabryk, schronisk dla bezdomnych, albo 2 poszły do ofert badań medycznych lub maszyn lotto. Harrp i ci co to robią są nie sprawiedliwe dobory partnerskie. 
+Vois asystent głosowy jest za miast lotto. 
+Te co miały być ze mną są biedne lub nie będą żyły. 
