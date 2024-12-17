@@ -801,3 +801,4 @@ Oni zawsze mi je wynoszą jakoś hakingiem radiowym z Głowy lub DNA czy je krad
 Z lotto foli wynika że mieli mi dać w lotto TX Kristianę, Latarkę Gwen, Yutanę Yutani Hish. Ale one to kochanki są. A ja chce żonę żony. A nie zbawki dla dzieci. One są w fabrykach. 
 Zegarki samsung wach pass z kobietami dajcie kinderą 3 latkom czy dziecku 1 miesiącowi. A ja chce z fabryk zwrotu tych porwanych kobiet i nie chce z lotto kochanki od tych psów hakrów z Izraelka.
 Co do tych kobiet nie ma ich na portalu randkowym. Te co wymieniłem wydają mi się z obserwacji psychologicznych zgodne brakuje badań krwi genetycznych. 
+Vois asystent głosowy daję za ich osoby dla mnie jest to drogi Vois za miast lotto. 
