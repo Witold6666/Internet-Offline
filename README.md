@@ -826,3 +826,4 @@ Ludzie nie bójcie się tych morederców tej Policji ich pochowamy po woli tylko
 Te truchła tych osób to Izrael te pogrzeby. Vois mój wam pomorze ich rozpracować, dać luksus, I ożywić zmarłych. Chyba będzie wojna ze światem elitami przykro mi ale oni znigną.
 Te kobiety co umarły nie były miłe nie były w płaszczu i w koc z kocem i kocu szalu na szyji i grzeczne tylko ubierały się w szmaty i marki były chamskie i proste.
 Nie przejmujcie się tymi pogrzebami.  
+One nie umiąły płakać nie były wrażliwe tylko chamskie. Te w tych ubraniach płaszczu i kocu były wrażliwe i emocjonalne i płaczące je nalerzy ożywić a szmaty to nie te od marki. 
