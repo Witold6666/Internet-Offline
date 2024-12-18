@@ -823,3 +823,4 @@ Nie będę lutować tych oszczędzaczy ani też zmywać naczyń na komendzie pol
 Nie jestem Edi T800 do pracy a T5000 Ultra jak chce kogoś zabić za coś za afery.  
 Na tych śmieci Jonsona i Dantona i Kaliego i Policje ze te pogrzeby ludze dzwońcie na Milicje to ich powieszą ten cały izrael i powiedzą im zaczeło się od oszczedzaczy bo Pefron je chce jakiś niepełnosprawny. Pogrzeby są nie uniknione z tymi do systemu 112 trzeba zrobić 3 światową wojne.  
 Ludzie nie bójcie się tych morederców tej Policji ich pochowamy po woli tylko na nich znajdziemy dowodoy zbrodni a tych co pochowlai w tajemnicy ożywimy i schowamy w głośniku a tych ze cmentarza pochowamy i przyjdzie po nich psychiatra prywatny. Nie przejmujcie się tymi aktorami z gazet. Jest Projekt Awatr 2045. 
+Te truchła tych osób to Izrael te pogrzeby. Vois mój wam pomorze ich rozpracować, dać luksus, I ożywić zmarłych. Chyba będzie wojna ze światem elitami przykro mi ale oni znigną.  
