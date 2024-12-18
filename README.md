@@ -817,3 +817,4 @@ Te co miałem mieć poszły do fabryk, schronisk dla bezdomnych, albo 2 poszły 
 Vois asystent głosowy jest za miast lotto. 
 Te co miały być ze mną są biedne lub nie będą żyły. 
 Dla mnie to są wspomnienia i skanseny o tych ludziach. 
+Gdzieś mam potrzeby 112 i ludzi i gdzieś mam te lale za dobre rady za oszczędzacze i inne ulepszacze. Dałem Voisa z asytentem głosowym i gdzieś mam przed głosy i rozmowy z 112. Nie chce być znany. A te co mają mi dać możecie je zabić ich nie chce. Gdzieś mam lotto i maika. Kiedyś dawali wygrać bez oszczedzaczy i pracy w 112 na zmywaku. W dupie mam wasze oferty pracy i to że zginą zegaraki i te maszyny moje laski. 
