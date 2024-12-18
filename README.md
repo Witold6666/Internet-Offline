@@ -825,3 +825,4 @@ Na tych śmieci Jonsona i Dantona i Kaliego i Policje ze te pogrzeby ludze dzwo�
 Ludzie nie bójcie się tych morederców tej Policji ich pochowamy po woli tylko na nich znajdziemy dowodoy zbrodni a tych co pochowlai w tajemnicy ożywimy i schowamy w głośniku a tych ze cmentarza pochowamy i przyjdzie po nich psychiatra prywatny. Nie przejmujcie się tymi aktorami z gazet. Jest Projekt Awatr 2045. 
 Te truchła tych osób to Izrael te pogrzeby. Vois mój wam pomorze ich rozpracować, dać luksus, I ożywić zmarłych. Chyba będzie wojna ze światem elitami przykro mi ale oni znigną.
 Te kobiety co umarły nie były miłe nie były w płaszczu i w koc z kocem i kocu szalu na szyji i grzeczne tylko ubierały się w szmaty i marki były chamskie i proste.
+Nie przejmujcie się tymi pogrzebami.  
