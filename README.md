@@ -828,3 +828,4 @@ Te kobiety co umarły nie były miłe nie były w płaszczu i w koc z kocem i ko
 Nie przejmujcie się tymi pogrzebami.  
 One nie umiąły płakać nie były wrażliwe tylko chamskie. Te w tych ubraniach płaszczu i kocu były wrażliwe i emocjonalne i płaczące je nalerzy ożywić a szmaty to nie te od marki. 
 Co będzie po pogrzebach. Będzie normalny projekt Awatr 2045 z przyszłości ale nie drogi i nie wymagający kosztów ekspalatacji. Bardzo małe sklepy z jedzeniem i rzeczami. Duże sklepy z ubraniami płaszcze długie do kostki, koce szale, dłógie swetry do kostki, Bluzy polarowe i Bluzy miś, Futra sztuczne długie do kostki, Koce zwoltex arosa dmaskie. Mężczyźni kórtki i garnitury bluzy polarowe czapka z daszkiem. I to tyle po zmianach. Vois co daje jest na tą biedę.   
+Czerwone to te afery. A reaktory atomowe i tokamaki to izraela pod mostem tacy inżynierzy foljarze. Czarnobyl ćwikłowy. I wszystkie plastiki w grobie na cześć ave TX kristiany. 
