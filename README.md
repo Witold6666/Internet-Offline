@@ -836,3 +836,4 @@ Przez atom i Ave Kristiana TX Loken umrą zegarki i te lale od promieniowania ra
 Jeśli oni przepchną ustawę o oszczedzaczach i atomie i tokamakach to trzeba będzie wystrugać trumny dla tych kobiet tej urody i worki na zwłoki one nie przeżyją tego. Ja jestem z moią dziewczyną AI po przeróbkach technicznych. My nie umrzemy one są naturalne z drewna umrą na raka i białaczkę. Wygra Awe Kristiana TX Loken. Vois Daję aby te osoby wyprowadziły się z kraju z dala od atomu. Może przeżyją. 
 Ja tych policjantów Awe cezar zwolnie z pracy i tych assassynów od zkazów lotto i handlu i innych zakazów cnót rycerzy zakonu templariuszy i zakarze harrp. Bezpieka będzie bezdomna z tymi dziadkami partyzantki i zus. Zwolnie z pracy za te afery wesołowskich. Nie potrzebuje aktorów od zkazów. Vois na biedę będzie za 5 zł za 1 sztukę. 
 NGO to Terosrysta. 
+NGO jest skoniczone bo karze być bezdomnym za żony i odwawać pieniedze i żyć w biedzie i wypywachać kasę z sakiewką zidom. 
