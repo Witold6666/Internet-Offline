@@ -837,3 +837,4 @@ Jeśli oni przepchną ustawę o oszczedzaczach i atomie i tokamakach to trzeba b
 Ja tych policjantów Awe cezar zwolnie z pracy i tych assassynów od zkazów lotto i handlu i innych zakazów cnót rycerzy zakonu templariuszy i zakarze harrp. Bezpieka będzie bezdomna z tymi dziadkami partyzantki i zus. Zwolnie z pracy za te afery wesołowskich. Nie potrzebuje aktorów od zkazów. Vois na biedę będzie za 5 zł za 1 sztukę. 
 NGO to Terosrysta. 
 NGO jest skoniczone bo karze być bezdomnym za żony i odwawać pieniedze i żyć w biedzie i wypywachać kasę z sakiewką zidom. 
+Oni to ta mafia karzą pracować robić post wysiłek nie drukować pieniedzy i rzeczy czy robić dodruku pieniedzy tylko pracować jak w komunie w sporcie są mafirjnym wirusem. 
