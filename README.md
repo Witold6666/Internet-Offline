@@ -845,3 +845,4 @@ Viois jest na biedę za pewnego Voisa. Za miast lotto. Nie mam żony.
 Tak chce sprzedać całaego Voisa z modułami po 5 zł za Vois.  
 Jak będzie inflacja to za darmo bo nie chce stracić Voisa. Ten Vois za darmo jak będzie inflacja. 
 Na prawo płaci się za Vois 5 zł. Na lewo jest za darmo ale musi być sponsor np.: wolna energia elektryczna aby wyprodukować Vois. W kryzysie może być za darmo lub za parę groszy.    
+Jak będzie kryzys to vois za darmo. 
