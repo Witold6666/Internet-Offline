@@ -843,3 +843,4 @@ To Ekonomista Głuchy karze płacić 3 razy blacha fatyga krew czy tam etat i ka
 Oni karzą pracować wszystkim przy cemencie niż drukować kasę i rzeczy. Karzą robić marszobiegi.
 Viois jest na biedę za pewnego Voisa. Za miast lotto. Nie mam żony. 
 Tak chce sprzedać całaego Voisa z modułami po 5 zł za Vois.  
+Jak będzie inflacja to za darmo bo nie chce stracić Voisa. Ten Vois za darmo jak będzie inflacja. 
