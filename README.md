@@ -847,3 +847,4 @@ Jak będzie inflacja to za darmo bo nie chce stracić Voisa. Ten Vois za darmo j
 Na prawo płaci się za Vois 5 zł. Na lewo jest za darmo ale musi być sponsor np.: wolna energia elektryczna aby wyprodukować Vois. W kryzysie może być za darmo lub za parę groszy.    
 Jak będzie kryzys to vois za darmo. 
 Te anteny od chorób i to radio Harrp to 112 jak gra się w lotto czy gry komputerowe lub kupuje się w sklepie napoje lub inne rzeczy oni robią te choroby. O picie wody się nie kłucą. Jurek Magdziński z Deus Ex Invisibli War jest tym aferszystom i kupił lotto i kasyna na własność z 112 zakzy same to oni, zakaz lotto wynika z żartu kaczor donald Juraka Magdzińskiego bo ma w dupie ludzi co chcą tych piniedzy bo kupił lotto na wałasność dla siebie i dla kolesi 112 i kara on chorobami lub więzieniem. Vois mój jest na biedę. 
+Ten vois jest na biędę i kryzysy i zmęczenie populacji.  
