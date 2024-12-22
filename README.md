@@ -850,3 +850,4 @@ Te anteny od chorób i to radio Harrp to 112 jak gra się w lotto czy gry komput
 Ten vois jest na biędę i kryzysy i zmęczenie populacji.  
 Ten Vois nie jest dla 112 czy dla medyków i sportu. Jest dla niebieskiego jasnego kapitalizmu nie jest socjalistyczny czy komunistyczny czy czynu pracy jest dla osób co kochają rzeczy z kapitalizmu i jego elegancji.  
 Ten Vois z modułami nie jest dla czerwonych i tęczy czerwonych czy religijnych czy 112 lub medyków z kodeksu pracy nie jest dla niewolników z pracy czy gwiazdorów z pracy.   
+Vois jest elegancki. 
