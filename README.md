@@ -851,3 +851,4 @@ Ten vois jest na biędę i kryzysy i zmęczenie populacji.
 Ten Vois nie jest dla 112 czy dla medyków i sportu. Jest dla niebieskiego jasnego kapitalizmu nie jest socjalistyczny czy komunistyczny czy czynu pracy jest dla osób co kochają rzeczy z kapitalizmu i jego elegancji.  
 Ten Vois z modułami nie jest dla czerwonych i tęczy czerwonych czy religijnych czy 112 lub medyków z kodeksu pracy nie jest dla niewolników z pracy czy gwiazdorów z pracy.   
 Vois jest elegancki. 
+Te sklepy z balachy te chale nic nie chcą dać za pieniedze zabierają zakupy np.: ta policja zabiera żony do pracy w tych sklpeach. Ja chce dać żony na zawsze nie są do pracy. Ta policja gwarantuje wam że wystarczy zgłosić ich na milicje i znów będą bezdomnymi. Te sklepy założyli bezdomni. 
