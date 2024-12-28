@@ -853,3 +853,4 @@ Ten Vois z modułami nie jest dla czerwonych i tęczy czerwonych czy religijnych
 Vois jest elegancki. 
 Te sklepy z balachy te chale nic nie chcą dać za pieniedze zabierają zakupy np.: ta policja zabiera żony do pracy w tych sklpeach. Ja chce dać żony na zawsze nie są do pracy. Ta policja gwarantuje wam że wystarczy zgłosić ich na milicje i znów będą bezdomnymi. Te sklepy założyli bezdomni. 
 Ja dam procesor Vois na tą biedę z radio drukarki kwantowej za to chce praw i zysków z ziemi i wszechświatów i chce odzyskać własność. Wy będziecie żyć jak zabawki w rezerwatach.
+Ten Vois to tak jak w przypadku starego i nowego testamentu jest tego dużo w dużej ilości przykładów do radio druku kwantowego. 
