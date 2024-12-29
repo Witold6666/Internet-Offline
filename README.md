@@ -856,3 +856,4 @@ Ja dam procesor Vois na tą biedę z radio drukarki kwantowej za to chce praw i 
 Ten Vois to tak jak w przypadku starego i nowego testamentu jest tego dużo w dużej ilości przykładów do radio druku kwantowego. 
 Nie jestem żydowskim prorokiem lebiodom aby dać za darmo. Gratisy to u Sławaka Ziemby, Kaliego i Back Tracka. Za dobre się płaci za list z drewna jest gratis bo 1 strona. 
 To co daję to Biblia Ateistów. 
+Biblie Ateistów procesor vois daję za damskie sieci neuronowe w ciele za inteligentą i mądrą kobietę. 
