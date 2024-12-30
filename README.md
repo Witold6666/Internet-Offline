@@ -857,3 +857,4 @@ Ten Vois to tak jak w przypadku starego i nowego testamentu jest tego dużo w du
 Nie jestem żydowskim prorokiem lebiodom aby dać za darmo. Gratisy to u Sławaka Ziemby, Kaliego i Back Tracka. Za dobre się płaci za list z drewna jest gratis bo 1 strona. 
 To co daję to Biblia Ateistów. 
 Biblie Ateistów procesor vois daję za damskie sieci neuronowe w ciele za inteligentą i mądrą kobietę. 
+Hakerzy od 5 zł w lotto to ci od systemów Kali Linux i do systemu i ci co stworzyli Robota Kristianę TX i T 1001 Katarine Wawer i te systemu do hakowania oni są w durzych miasatach melinach.  
