@@ -860,3 +860,4 @@ Biblie Ateistów procesor vois daję za damskie sieci neuronowe w ciele za intel
 Hakerzy od 5 zł w lotto to ci od systemów Kali Linux i do systemu i ci co stworzyli Robota Kristianę TX i T 1001 Katarine Wawer i te systemu do hakowania oni są w durzych miasatach melinach.  
 To co daję to procesor wirtualnych zakupów offline EEG neurotech BCI. 
 Ja Yutani i ninja i gaidenów czy policji i wojska się wyrzekłem nie mam rodziny oni to moja rodzina oni wszystkich pałują. Żyje sam z Voisem. Rodzice te też są pały. Moja rodzina to dzbany 112. Nie lubią świant i aniołów. Ja piszę tylko frnczyznę aby coś było na rynku. 
+Tych kasków NeuroTech EEG BCI potrzebnych jest 3000  do 10000 sztuk w sklepach i magazynach.  
