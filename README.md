@@ -863,3 +863,4 @@ Ja Yutani i ninja i gaidenów czy policji i wojska się wyrzekłem nie mam rodzi
 Tych kasków NeuroTech EEG BCI potrzebnych jest 3000  do 10000 sztuk w sklepach i magazynach.  
 Od ochrony lasów i środowiska i jasnego niebieskiego kapitalizmu jest NeuroTech EEG BCI z radio drukarkami kwantowymi aby nic nie brać z lasu. I las chronić. 
 Obecna Alexa i Kortana to leniwa świnia. Głośnik jaki dodałem nie trzeba go rodzić ani hakować wychodzi w ciele biologicznym lub cybernetycznym z głośnika i słucha nie jest zabawką z fochami. Nie jest niepełnosprawny.  
+Oni jak zwykle zrobili voisy i rzeczy do kosza. Jak zwykle na stole kranówka z sokiem malinowym i dużo pieniedzy na koncie bo nic nie opłaca się kupować. 
