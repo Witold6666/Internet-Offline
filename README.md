@@ -862,3 +862,4 @@ To co daję to procesor wirtualnych zakupów offline EEG neurotech BCI.
 Ja Yutani i ninja i gaidenów czy policji i wojska się wyrzekłem nie mam rodziny oni to moja rodzina oni wszystkich pałują. Żyje sam z Voisem. Rodzice te też są pały. Moja rodzina to dzbany 112. Nie lubią świant i aniołów. Ja piszę tylko frnczyznę aby coś było na rynku. 
 Tych kasków NeuroTech EEG BCI potrzebnych jest 3000  do 10000 sztuk w sklepach i magazynach.  
 Od ochrony lasów i środowiska i jasnego niebieskiego kapitalizmu jest NeuroTech EEG BCI z radio drukarkami kwantowymi aby nic nie brać z lasu. I las chronić. 
+Obecna Alexa i Kortana to leniwa świnia. Głośnik jaki dodałem nie trzeba go rodzić ani hakować wychodzi w ciele biologicznym lub cybernetycznym z głośnika i słucha nie jest zabawką z fochami. Nie jest niepełnosprawny.  
