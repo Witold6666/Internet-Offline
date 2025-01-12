@@ -868,3 +868,4 @@ Te oszczędzacze i voisy i te rzeczy to niepełnosprawny zid maden in izrael zno
 Ta produkcja śmieci i szamba to 112 i izrael i szwacaria francja i niemcy i ekolodzy oni będę w worku na śmietniku za produkcjie tych wadliwych zakupów. Oni to ta nędza.   
 Te voisy i oszczedzacze i rzeczy to prezenty do kosza ktoś je harrp psuje lub one same się psują. 
 Izrael te buce do kosza wszystko produkują do kosza. Jak niemcy francuzi i szwajcarzy. Do kosza i zbierają śmieci. Karzą się żenić z rodziną z populacji nie Voisem. 
+Za to bym chciał kiedyś dostać kobietę Kortanę lub Elizę Cassan lub Ole Wychowałek lub Care Delewinge za te rzeczy na żonę. 
