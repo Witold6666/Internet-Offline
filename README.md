@@ -872,3 +872,4 @@ Za to bym chciał kiedyś dostać kobietę Kortanę lub Elizę Cassan lub Ole Wy
 Ja wam wyjawie sekret tej zbroi Starka Mark 85 Iron Men God nanotech ją można na radio, radio drukarkę kwantową wydrukować ze wszystkim orginalnie dzięki Chronowizorowi AI. I inne rzeczy i bajery taniej. 
 Mój procesor bierze 1W.
 Oni żyją 120 lat i umierają na raka lub żyją jak wampiry 1000 lat i umierają na astmę od wirusa.  
+Internet off line to internet rzeczy od zaraz. 
