@@ -878,3 +878,4 @@ Ten Vois to zakupy w Voisie co zapsonsurują Voisy te Fundacje z darmową wysył
 Procesor Voisa to I9 x series. To mocny procesor. 
 Z Tym Voisem można być prezes. 
 Co do oszczędzaczów w Vois to one są tylko do ładowania Voisa jego bateri nie do sprzątania może do odkurzacza robota na baterie. Heblarki nie. To miajstry mają problem to Vois do domu aby być prezes. 
+Vois dostarczy fundacja i go wyprodukuje też coś zarobi trochę sieć telekomunikacyjna sprzeda go z 3 urządzeniami do 100 zł umowa na abonament po 25 zł internet rzeczy z telefonem na internet Voip i telekumunikacją radiową 5G. Wi Fi Blooethot. Jakaś zamożna sieć zianwestuje w tą technologię i ją dostarczy do jakiegoś salonu sieci. Aby każdy był prezes na socjalu. 
