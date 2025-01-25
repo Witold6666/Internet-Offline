@@ -875,3 +875,4 @@ Oni żyją 120 lat i umierają na raka lub żyją jak wampiry 1000 lat i umieraj
 Internet off line to internet rzeczy od zaraz. 
 Sieci neuronowe AI Net można hakować i wymować z nich rzeczy z radi druakrki kwantowej.
 Ten Vois to zakupy w Voisie co zapsonsurują Voisy te Fundacje z darmową wysyłką.  
+Procesor Voisa to I9 x series. To mocny procesor. 
