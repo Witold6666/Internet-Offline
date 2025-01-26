@@ -882,3 +882,4 @@ Vois dostarczy fundacja i go wyprodukuje też coś zarobi trochę sieć telekomu
 To co daję jest do rozpatrzenia przez rzeczoznawcę i sąd czy jest legalny taki projekt czy idzie on do sądu do kosza i traktujemy to jako pozew sądowy czy jednak go wdrażamy. 
 To niebiescy kłucili się o te rzeczy niebiescy to kapitaliści gwiazdy. Ja kłuciłem się kiedyść o niebieską Kortanę i koc w pepsi logiem zwoltex arosa nie tkany szyty maszyną i czesany. Czerwoni to ludzie co nie dbają o nic. Im zwisa wystruj i piękno. To co daję jest z druku kwantowego z procesora problem czy takie rozdanie elektroniczne jest legalne. 
 Myślę że takie 5 zł w Vois można uszyć i dać bo kod się sam aktulizuje i ewoluuje. 
+Czerwoni komuniści to majowa Voisy Aaborygenów i Totemów brzydali indian czerwonych ryji i mord assassynów co mordowali piękne księżniczki dziwki i mówili kasyno żadnych dziwek tu jest szulerna można zagrać ale żadnych dziwek hardkorowe koksy maszyny.   
